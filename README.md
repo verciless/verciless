@@ -1,4 +1,4 @@
-https://verciless.atabook.org/
+https://verciless.atabook.org/ <-- Leave me a message! I do cosplay requests and take song requests as well!
 
 This github is unfinished and currently in the works, so for now, enjoy my oc Zero! <3 (whisper me and tell me what you think of this little goober) - random lore below him
 
