@@ -1,6 +1,6 @@
 https://verciless.atabook.org/ <-- Leave me a message! I do cosplay requests and take song reccomendations as well!
 
-This github is unfinished and currently in the works, so in the meantime, enjoy my oc Zero! <3 (whisper me and tell me what you think of this little goober) - random lore below him
+This github is unfinished and currently in the works, so in the meantime, enjoy my oc Zero! <3 (whisper me and tell me what you think of this little goober bc i'd love love love to hear) - random lore below him
 
 ![IMG_3912](https://github.com/user-attachments/assets/7c1d3663-6c63-4678-aafa-65686ed203a6)
 
