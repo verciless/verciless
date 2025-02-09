@@ -1,3 +1,5 @@
+https://verciless.atabook.org/
+
 This github is unfinished and currently in the works, so for now, enjoy my oc Zero! <3 (whisper me and tell me what you think of this little goober) - random lore below him
 
 ![IMG_3912](https://github.com/user-attachments/assets/7c1d3663-6c63-4678-aafa-65686ed203a6)
