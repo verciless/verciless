@@ -13,5 +13,6 @@ This github is unfinished and currently in the works, so in the meantime, enjoy 
 
 **-Some things about me you should know before trying to interact with me...**
 
+I often, very often, tend to distance myself from my friends or people I know online. I have a very very bad habit of hyper-fixating on friends that I interact with online, to the point where its become unhealthy for me. Because of this, I don’t interact much with the people I have added - and if I do, I probably feel very uncomfortable in doing so - though it is nothing against you, if you are my friend. I just get unhealthily possessive.
 
 
