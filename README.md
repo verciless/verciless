@@ -13,6 +13,12 @@ This github is unfinished and currently in the works, so in the meantime, enjoy 
 
 **-Some things about me you should know before trying to interact with me...**
 
-I often, very often, tend to distance myself from my friends or people I know online. I have a very very bad habit of hyper-fixating on friends that I interact with online, to the point where its become unhealthy for me. Because of this, I don’t interact much with the people I have added - and if I do, I probably feel very uncomfortable in doing so - though it is nothing against you, if you are my friend. I just get unhealthily possessive.
+I often, very often, tend to distance myself from my friends or people I know online. I have a bad habit of hyper-fixating on the friends I interact with online, to the point where it has become unhealthy for me. Because of this, I don't engage much with the people I've added. I never interact first because I feel nervous about possibly annoying my friends to the point where they no longer want anything to do with me. Additionally, since I usually feel lonely on PonyTown and struggle to have proper social interactions despite yearning for them, I become unhealthily jealous and possessive over the friends I am close to, which is overall affecting my mental state.
 
+I sometimes go over to people for C+H, but I always feel a lot of hesitation before I am able to work up the courage to go sit by someone. I always accept C+H though, and I am willing to sit there for hours doing so.
 
+With my social activity on Ponytown, I am almost always very silent. I will only ever speak if you're cosplaying something I like, if the game I am playing requires me to speak, If i am with friends, or through whispers. If you try to speak to me outside of whispers, I will not respond 80% of the time because I am frequently offtab. I always play: FTS, GTC, FASHION ROULETTE
+
+I don't have Touch Trigger or anything of the sort, but I sometimes will get a bit uncomfortable from being in the middle of large crowds. I prefer to stay away from them, and will move to fit my liking.
+
+I also freely block. I do not owe you an explanation as to why I blocked you, because I only block rude people, racists, and pedophiles.
