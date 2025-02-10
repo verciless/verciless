@@ -21,4 +21,6 @@ With my social activity on Ponytown, I am almost always very silent. I will only
 
 I don't have Touch Trigger or anything of the sort, but I sometimes will get a bit uncomfortable from being in the middle of large crowds. I prefer to stay away from them, and will move to fit my liking.
 
-I also freely block. I do not owe you an explanation as to why I blocked you, because I only block rude people, racists, and pedophiles.
+Additionally, i'm very sorry if I may frequently come off as rude, or mean. I truly do not mean to - as I am not that kind of person, and have an issue with controling my tone through text.
+
+I also freely block. I do not owe you an explanation as to why I blocked you, because I only block very rude people, racists, and pedophiles.
