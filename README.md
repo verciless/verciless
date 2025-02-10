@@ -19,8 +19,6 @@ I sometimes go over to people for C+H, but I always feel a lot of hesitation bef
 
 With my social activity on Ponytown, I am almost always very silent. I will only ever speak if you're cosplaying something I like, if the game I am playing requires me to speak, If i am with friends, or through whispers. If you try to speak to me outside of whispers, I will not respond 80% of the time because I am frequently offtab. I always play: FTS, GTC, FASHION ROULETTE
 
-I don't have Touch Trigger or anything of the sort, but I sometimes will get a bit uncomfortable from being in the middle of large crowds. I prefer to stay away from them, and will move to fit my liking.
-
 Additionally, i'm very sorry if I may frequently come off as rude, or mean. I truly do not mean to - as I am not that kind of person, and have an issue with controling my tone through text.
 
 I also freely block. I do not owe you an explanation as to why I blocked you, because I only block very rude people, racists, and pedophiles.
