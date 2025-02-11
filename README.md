@@ -32,4 +32,4 @@ I LOVE orcas!! they're my favorite animals, and I love everything about them. I 
 
 My favorite book is called "The Wrap Up List" and it is amazing!!
 
-I love drawing, and it is one of my favorite hobbies. Unfortunatley though I do not feel comfortable in posting most of my art, as I am a victim to art theft.
+I love drawing, and it is one of my favorite hobbies. Unfortunately though I do not feel comfortable in posting most of my art, as I am a victim to art theft.
