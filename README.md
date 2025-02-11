@@ -1,8 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=verciless)
 
 ![OIP (1)](https://github.com/user-attachments/assets/f0488315-be3d-4e71-901b-ef13d0efdaa8)
-![download (5) (2)](https://github.com/user-attachments/assets/d877eac6-a2ce-449f-93f9-6acb8be9e63a)
-
 
 https://verciless.atabook.org/ <-- Leave me a message here. I do cosplay requests (as in, i have run out of cosplay ideas, so i might make a cosplay for you if ya want me to) and I take song reccomendations as well - just send a link a long with it.
 
