@@ -31,3 +31,5 @@ Additionally, i'm very sorry if I may frequently come off as rude, or mean. I tr
 I LOVE orcas!! they're my favorite animals, and I love everything about them. I Also like marine life in general, and want to be a marine biologist in the future!
 
 My favorite book is called "The Wrap Up List" and it is amazing!!
+
+I love drawing, and it is one of my favorite hobbies. Unfortunatley though I do not feel comfortable in posting most of my art, as I am a victim to art theft.
