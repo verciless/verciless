@@ -10,7 +10,7 @@ https://verciless.atabook.org/ <-- Leave me a message here. I do cosplay request
 
 This github is unfinished and currently being worked on - hence for why it seems a bit messy. 
 
-![copy_D49186EA-10B4-4943-BCB6-0CA740C10131](https://github.com/user-attachments/assets/1f7e4680-f131-4d72-b9c7-8cd1e36cf63f)
+![copy_67A7B8EC-9CFC-4ACE-8655-F5AE09DA1C15](https://github.com/user-attachments/assets/d1a79560-8ce9-48f6-a191-458135720736)
 
 <hr>
 
