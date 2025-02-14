@@ -33,3 +33,5 @@ I LOVE orcas!! they're my favorite animals, and I love everything about them. I 
 My favorite book is called "The Wrap Up List" and it is amazing!!
 
 I love drawing, and it is one of my favorite hobbies. Unfortunately though I do not feel comfortable in posting most of my art, as I am a victim to art theft.
+
+My Favorite characters (as of right now) Are Pitaya Dragon, Longan Dragon, And Shadow milk! (Also slightly including Ananas Dragon)
