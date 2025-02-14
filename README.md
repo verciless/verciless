@@ -2,7 +2,7 @@
 
 https://verciless.atabook.org/ <-- Leave me a message here. I do cosplay requests (as in, i have run out of cosplay ideas, so i might make a cosplay for you if ya want me to) and I take song reccomendations as well - just send a link a long with it.
 
-![IMG_4068](https://github.com/user-attachments/assets/f5e8700c-af9c-4e6e-bbc7-a521f495f2ae)
+![413115504-f5e8700c-af9c-4e6e-bbc7-a521f495f2ae (1)](https://github.com/user-attachments/assets/dcb1bec3-088b-4d28-84f0-9d71ffbd426b)
 
 
 ![orcalove](https://64.media.tumblr.com/0ac0ea7e93dddae41a40ff1d4948eca1/dee7af320228c3f8-e4/s250x400/bf33e559f4c8dde073bfe77a860f990ff6f941dc.gifv)
