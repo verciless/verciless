@@ -2,9 +2,6 @@
 
 https://verciless.atabook.org/ <-- Leave me a message here. I do cosplay requests (as in, i have run out of cosplay ideas, so i might make a cosplay for you if ya want me to) and I take song reccomendations as well - just send a link a long with it.
 
-![413115504-f5e8700c-af9c-4e6e-bbc7-a521f495f2ae (1)](https://github.com/user-attachments/assets/dcb1bec3-088b-4d28-84f0-9d71ffbd426b)
-
-
 ![orcalove](https://64.media.tumblr.com/0ac0ea7e93dddae41a40ff1d4948eca1/dee7af320228c3f8-e4/s250x400/bf33e559f4c8dde073bfe77a860f990ff6f941dc.gifv)
 
 ![Orc1](https://64.media.tumblr.com/c56a5a9dce099b9e18228840f35afaae/c56c5faad39d5be1-7b/s100x200/969d089e080837e6303632f45af8e963def0c7d5.gifv) ![Orc2](https://64.media.tumblr.com/34be90183d939f2d3c6d5ec0cbfc0045/c56c5faad39d5be1-be/s100x200/43d9b54e58ddc664c8d49c061b5d5963ebfb9c70.gifv) ![Orc3](https://64.media.tumblr.com/0da881c572b232ea62b5377b24440e10/c56c5faad39d5be1-fe/s100x200/e215be23c5a882de50d53b1431c86c88661f7915.gifv)
@@ -13,7 +10,9 @@ https://verciless.atabook.org/ <-- Leave me a message here. I do cosplay request
 
 This github is unfinished and currently being worked on - hence for why it seems a bit messy. 
 
-![copy_67A7B8EC-9CFC-4ACE-8655-F5AE09DA1C15](https://github.com/user-attachments/assets/d1a79560-8ce9-48f6-a191-458135720736)
+![413115504-f5e8700c-af9c-4e6e-bbc7-a521f495f2ae (1)](https://github.com/user-attachments/assets/dcb1bec3-088b-4d28-84f0-9d71ffbd426b) ![copy_67A7B8EC-9CFC-4ACE-8655-F5AE09DA1C15](https://github.com/user-attachments/assets/d1a79560-8ce9-48f6-a191-458135720736)
+
+
 
 <hr>
 
