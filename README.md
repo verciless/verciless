@@ -6,7 +6,7 @@ This github is unfinished and currently being worked on - hence for why it seems
 
 <hr>
 
-![413115504-f5e8700c-af9c-4e6e-bbc7-a521f495f2ae (1)](https://github.com/user-attachments/assets/44e11e8a-476f-4fdc-ae46-a2a6af7549d5) ![413020701-501a6279-fa07-448a-b7e3-cef1fe20eeea](https://github.com/user-attachments/assets/f6753a50-b74e-4b17-8ed6-ffc3cd150e90) ![IMG_4094-ezgif com-resize](https://github.com/user-attachments/assets/92c392e8-1afe-4d79-aee5-3760e427cbe5)
+![413115504-f5e8700c-af9c-4e6e-bbc7-a521f495f2ae (1)] ![IMG_4094-ezgif com-resize](https://github.com/user-attachments/assets/92c392e8-1afe-4d79-aee5-3760e427cbe5)
 
 <hr>
 
