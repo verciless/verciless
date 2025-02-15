@@ -10,7 +10,7 @@ This github is unfinished and currently being worked on - hence for why it seems
 
 <hr>
 
-[[https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31yd3hbvttlvutoal2wq2fxrgdgy&redirect=true][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31yd3hbvttlvutoal2wq2fxrgdgy&cover_image=true&theme=compact&show_offline=true&background_color=000000&interchange=false)]]
+[[https://spotify-github-profile.verciless.com/api/view.svg?uid=31yd3hbvttlvutoal2wq2fxrgdgy&redirect=true][https://spotify-github-profile.verciless.com/api/view.svg?uid=31yd3hbvttlvutoal2wq2fxrgdgy&cover_image=true&theme=compact&show_offline=true&background_color=000000&interchange=false)]]
 
 <hr>
 
