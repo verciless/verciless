@@ -37,3 +37,5 @@ My favorite book is called "The Wrap Up List" and it is amazing!!
 I love drawing, and it is one of my favorite hobbies. Unfortunately though I do not feel comfortable in posting most of my art, as I am a victim to art theft.
 
 My Favorite characters (as of right now) Are Pitaya Dragon, Longan Dragon, And Shadow milk! (Also slightly including Ananas Dragon)
+
+![Untitled339_20250214211527](https://github.com/user-attachments/assets/cea4587c-ba49-4a8e-8d12-3e9d85330a46)
