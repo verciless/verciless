@@ -6,12 +6,13 @@ This github is unfinished and currently being worked on - hence for why it seems
 
 <hr>
 
-![IMG_4084](https://github.com/user-attachments/assets/a8cedd00-a912-487e-9617-d8f92209e089) ![Untitled428_20250215151117](https://github.com/user-attachments/assets/579140fc-f08a-4d03-baff-45444ec89029)
+![IMG_4084](https://github.com/user-attachments/assets/a8cedd00-a912-487e-9617-d8f92209e089) ![413570881-579140fc-f08a-4d03-baff-45444ec89029 (3)](https://github.com/user-attachments/assets/0625d4ba-3057-44bb-867c-13fb1c5c8b00)
+
 
 
 <hr>
 
-![Untitled428_20250215152023](https://github.com/user-attachments/assets/b34fd5f0-10e8-476e-afe9-394df1020015) ![IMG_4094](https://github.com/user-attachments/assets/aa77b297-879b-4a4a-92cb-0e8206a36cd6)
+![413571447-b34fd5f0-10e8-476e-afe9-394df1020015 (1)](https://github.com/user-attachments/assets/dcf2ac06-e6e6-4764-a9e4-11c9b396a1c2) ![IMG_4094](https://github.com/user-attachments/assets/aa77b297-879b-4a4a-92cb-0e8206a36cd6)
 
 
 
