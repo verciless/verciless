@@ -11,6 +11,12 @@ This github is unfinished and currently being worked on - hence for why it seems
 
 <hr>
 
+![Untitled428_20250215152023](https://github.com/user-attachments/assets/b34fd5f0-10e8-476e-afe9-394df1020015) ![IMG_4094](https://github.com/user-attachments/assets/aa77b297-879b-4a4a-92cb-0e8206a36cd6)
+
+
+
+<hr>
+
 **-Some personal things**
 
 I often, very often, tend to distance myself from my friends or people I know online. I have a bad habit of fixating on the friends I interact with online, to the point where it has become unhealthy for me. Because of this, I don't engage much with the people I've added. I never interact first because I feel nervous about possibly annoying my friends to the point where they no longer want anything to do with me. Additionally, since I usually feel lonely on PonyTown and struggle to have proper social interactions despite yearning for them, I become unhealthily jealous and possessive over the friends I am close to, which is overall affecting my mental state.
