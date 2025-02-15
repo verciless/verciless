@@ -10,6 +10,10 @@ This github is unfinished and currently being worked on - hence for why it seems
 
 <hr>
 
+[[https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31yd3hbvttlvutoal2wq2fxrgdgy&redirect=true][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31yd3hbvttlvutoal2wq2fxrgdgy&cover_image=true&theme=compact&show_offline=true&background_color=000000&interchange=false)]]
+
+<hr>
+
 **-Some personal things**
 
 I often, very often, tend to distance myself from my friends or people I know online. I have a bad habit of fixating on the friends I interact with online, to the point where it has become unhealthy for me. Because of this, I don't engage much with the people I've added. I never interact first because I feel nervous about possibly annoying my friends to the point where they no longer want anything to do with me. Additionally, since I usually feel lonely on PonyTown and struggle to have proper social interactions despite yearning for them, I become unhealthily jealous and possessive over the friends I am close to, which is overall affecting my mental state.
