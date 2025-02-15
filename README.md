@@ -2,17 +2,11 @@
 
 https://verciless.atabook.org/ <-- Leave me a message here. I do cosplay requests (as in, i have run out of cosplay ideas, so i might make a cosplay for you if ya want me to) and I take song reccomendations as well - just send a link a long with it.
 
-![Orc1](https://64.media.tumblr.com/c56a5a9dce099b9e18228840f35afaae/c56c5faad39d5be1-7b/s100x200/969d089e080837e6303632f45af8e963def0c7d5.gifv) ![Orc2](https://64.media.tumblr.com/34be90183d939f2d3c6d5ec0cbfc0045/c56c5faad39d5be1-be/s100x200/43d9b54e58ddc664c8d49c061b5d5963ebfb9c70.gifv) ![Orc3](https://64.media.tumblr.com/0da881c572b232ea62b5377b24440e10/c56c5faad39d5be1-fe/s100x200/e215be23c5a882de50d53b1431c86c88661f7915.gifv)
- ![sum](https://64.media.tumblr.com/8fd75d64d0e7c20279f1a1a39291aa80/6eac0cbc1027da31-3a/s100x200/05d47a200e3b7725225ba3780a47db913434afdf.gifv) ![water](https://64.media.tumblr.com/5d1f34ddeb66789e54306c948e95a8ee/8f3b966c768a7a38-e5/s100x200/4c93ae58a12d5237be8b5981b452ec4db6c8f371.gifv) ![luckystar](https://64.media.tumblr.com/231796cb0902abbc37f0dccc0e2e8c0f/0a314c1722fc4072-6e/s100x200/3c54da33774d9a86064bbcb28a8be2109371136c.gifv) ![night](https://64.media.tumblr.com/c0bc053497b6d2cdacf72607710c1e0c/0a314c1722fc4072-59/s100x200/aa6877408a07b3006e9993c626430f1fbea2343e.gifv) ![tv](https://64.media.tumblr.com/603280bb25174fe4ab92aa165ef7d0a8/321aa268678c99b9-ff/s100x200/d28fa8f73c9bd03444110b6b310f5a53cc2bd5eb.gifv)
-
-
 This github is unfinished and currently being worked on - hence for why it seems a bit messy. 
 
-![copy_67A7B8EC-9CFC-4ACE-8655-F5AE09DA1C15](https://github.com/user-attachments/assets/c9b8959e-a83b-4477-b4ef-d51fc6215fad)
-![Untitled425_20250214212141](https://github.com/user-attachments/assets/1ab97657-1e74-4469-9d27-4091bd393271)
+<hr>
 
-
-
+ ![copy_67A7B8EC-9CFC-4ACE-8655-F5AE09DA1C15](https://github.com/user-attachments/assets/c9b8959e-a83b-4477-b4ef-d51fc6215fad)
 
 <hr>
 
