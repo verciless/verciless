@@ -6,11 +6,8 @@ This github is unfinished and currently being worked on - hence for why it seems
 
 <hr>
 
-![413115504-f5e8700c-af9c-4e6e-bbc7-a521f495f2ae (1)](https://github.com/user-attachments/assets/294b9dfa-9734-4ab3-bc7a-b5336b984119) ![IMG_4094-ezgif com-resize](https://github.com/user-attachments/assets/92c392e8-1afe-4d79-aee5-3760e427cbe5)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yd3hbvttlvutoal2wq2fxrgdgy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yd3hbvttlvutoal2wq2fxrgdgy&redirect=true) ![413115504-f5e8700c-af9c-4e6e-bbc7-a521f495f2ae (1)](https://github.com/user-attachments/assets/294b9dfa-9734-4ab3-bc7a-b5336b984119) ![IMG_4094-ezgif com-resize](https://github.com/user-attachments/assets/92c392e8-1afe-4d79-aee5-3760e427cbe5)
 
-<hr>
-
-[[https://spotify-github-profile.verciless.com/api/view.svg?uid=31yd3hbvttlvutoal2wq2fxrgdgy&redirect=true][https://spotify-github-profile.verciless.com/api/view.svg?uid=31yd3hbvttlvutoal2wq2fxrgdgy&cover_image=true&theme=compact&show_offline=true&background_color=000000&interchange=false)]]
 
 <hr>
 
