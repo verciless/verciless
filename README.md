@@ -15,7 +15,10 @@
 
 <p align="center">This github is unfinished and currently being worked on - hence for why it seems a bit messy. </p>
 
-<hr>
+<p align="center">
+<img src="https://github.com/user-attachments/assets/ff10956a-69ab-4c12-9172-6413c33a3485"
+  </p>
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yd3hbvttlvutoal2wq2fxrgdgy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yd3hbvttlvutoal2wq2fxrgdgy&redirect=true) ![413115504-f5e8700c-af9c-4e6e-bbc7-a521f495f2ae (1)](https://github.com/user-attachments/assets/294b9dfa-9734-4ab3-bc7a-b5336b984119)
 
