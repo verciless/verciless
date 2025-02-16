@@ -1,12 +1,19 @@
-![](https://komarev.com/ghpvc/?username=verciless) 
+<p align="Center">
+<img src="https://komarev.com/ghpvc/?username=verciless"
+  </p>
 
-![IMG_4113](https://github.com/user-attachments/assets/3ccf3936-6788-4c71-9d9e-bfa0d2e8d716)
-https://verciless.atabook.org/ <-- Leave me a message here. I do cosplay requests (as in, i have run out of cosplay ideas, so i might make a cosplay for you if ya want me to) and I take song reccomendations as well - just send a link a long with it.)
+<p align="center">
+<img src="https://github.com/user-attachments/assets/24450a4b-5020-484a-86c7-d664121171d6"
+  </p>
 
-![Untitled436_20250216133210](https://github.com/user-attachments/assets/f642e1a7-edb1-483d-b872-ca4ff6d5dabd)
+<p align="center">https://verciless.atabook.org/ </p>
+<p align="center">Leave me a message here. I do cosplay requests (as in, i have run out of cosplay ideas, so i might make a cosplay for you if ya want me to) and I take song reccomendations as well - just send a link a long with it.) </p>
 
+<p align="center">
+<img src="https://github.com/user-attachments/assets/ffa5029a-80f3-41c4-9983-3a361dd9e257"
+  </p>
 
-This github is unfinished and currently being worked on - hence for why it seems a bit messy.
+<p align="center">This github is unfinished and currently being worked on - hence for why it seems a bit messy. </p>
 
 <hr>
 
