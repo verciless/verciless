@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=verciless) ![orcalove](https://64.media.tumblr.com/0ac0ea7e93dddae41a40ff1d4948eca1/dee7af320228c3f8-e4/s250x400/bf33e559f4c8dde073bfe77a860f990ff6f941dc.gifv) ![IMG_4094-ezgif com-resize](https://github.com/user-attachments/assets/92c392e8-1afe-4d79-aee5-3760e427cbe5)
+![](https://komarev.com/ghpvc/?username=verciless) ![orcalove](https://64.media.tumblr.com/0ac0ea7e93dddae41a40ff1d4948eca1/dee7af320228c3f8-e4/s250x400/bf33e559f4c8dde073bfe77a860f990ff6f941dc.gifv)
 
 https://verciless.atabook.org/ <-- Leave me a message here. I do cosplay requests (as in, i have run out of cosplay ideas, so i might make a cosplay for you if ya want me to) and I take song reccomendations as well - just send a link a long with it.
 
