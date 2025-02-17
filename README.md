@@ -7,7 +7,7 @@
   </p>
 
 <p align="center">https://verciless.atabook.org/ </p>
-<p align="center">Leave me a message here. I do cosplay requests (as in, i have run out of cosplay ideas, so i might make a cosplay for you if ya want me to) and I take song reccomendations as well - just send a link a long with it.) </p>
+<p align="center"> <sub> Leave me a message here. I do cosplay requests, as in, i have run out of cosplay ideas, so i might make a cosplay for you if ya want me to) and I take song reccomendations as well - just send a link a long with it. </sub> </p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ffa5029a-80f3-41c4-9983-3a361dd9e257"
@@ -18,11 +18,6 @@
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ff10956a-69ab-4c12-9172-6413c33a3485"
   </p>
-
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yd3hbvttlvutoal2wq2fxrgdgy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yd3hbvttlvutoal2wq2fxrgdgy&redirect=true) ![413115504-f5e8700c-af9c-4e6e-bbc7-a521f495f2ae (1)](https://github.com/user-attachments/assets/294b9dfa-9734-4ab3-bc7a-b5336b984119)
-
-
 <hr>
 
 **-Some personal things**
