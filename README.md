@@ -15,9 +15,6 @@
 
 <p align="center">This github is unfinished and currently being worked on - hence for why it seems a bit messy. </p>
 
-<p align="center">
-<img src="https://github.com/user-attachments/assets/ff10956a-69ab-4c12-9172-6413c33a3485"
-  </p>
 <hr>
 
 **-Some personal things**
