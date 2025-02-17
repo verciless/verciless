@@ -1,5 +1,5 @@
 <p align="Center">
-<img src="https://komarev.com/ghpvc/?username=verciless"
+<img src="https://komarev.com/ghpvc/?username=verciless&label=Pitaya+Viewers&color=f00832"
   </p>
 
 <p align="center">
