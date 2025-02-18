@@ -13,7 +13,7 @@
 <img src="https://github.com/user-attachments/assets/f4c978d6-fcc6-4b36-b45b-b445c3225771"
   </p>
 
-<p align="center">This github is unfinished and currently being worked on - hence for why it seems a bit messy. </p>
+<p align="center">This github is unfinished and is subjected to change - hence for why it seems a bit messy. </p>
 
 <hr>
 
