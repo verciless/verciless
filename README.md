@@ -13,7 +13,7 @@
 <img src="https://github.com/user-attachments/assets/f4c978d6-fcc6-4b36-b45b-b445c3225771"
   </p>
 
-<p align="center">This github is unfinished and is subjected to change - hence for why it seems a bit messy. </p>
+<p align="center">This github is unfinished and is subjected to change - hence for why it seems a bit messy. If you follow me expecting to be followed back, then don't even bother. I do not, and will not follow back anyone on github, except for 1 person, and (perhaps) 2 people if she decides to make herself a github page. </p>
 
 <hr>
 
