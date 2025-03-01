@@ -41,5 +41,4 @@
 
 <hr>
 <p align="center">
-<img src="https://github.com/user-attachments/assets/ce0d07a6-3f3b-4a63-9d78-3b34cfe71420" </p>
-
+<img src="https://github.com/user-attachments/assets/1d06da7a-e9de-4b48-af6c-e63a2d220604" </p>
