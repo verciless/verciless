@@ -38,3 +38,8 @@
 ✦ I love drawing, and it is one of my favorite hobbies. Unfortunately though I do not feel comfortable in posting most of my art, as I am a victim to art theft.
 
 ✦ My Favorite characters (as of right now) Are Pitaya Dragon, Longan Dragon, Shadow milk, Mikaela Hyakuya, Malleus Draconia, and Hua Cheng
+
+<hr>
+<p align="center">
+<img src="https://github.com/user-attachments/assets/cfb87dbc-1597-40ab-b385-fde21babe92d" </p>
+
