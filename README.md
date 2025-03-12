@@ -44,5 +44,4 @@
 
 ![Screenshot 2025-03-01 100806](https://github.com/user-attachments/assets/5a8539d6-19ee-4f60-9e4a-5bff07a901c4) ![Screenshot 2025-03-01 100742](https://github.com/user-attachments/assets/42cc5784-5b7a-4445-ae90-46ed620bbc57) If you are any of the following people shown: do not interact with me.
 
-
-
+If you are also in the Dandy's world fandon, do not interact with me - or at the very least ***interact with caution***. I'm fucking sick of the death threats and harrasment just for being in the crk fandom, so I furthermore want nothing to do with the dandy's world fandom. If you are able to restrain yourself from acting like a dense, immature child, then I will be willing to interact with you.
