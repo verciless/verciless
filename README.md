@@ -14,7 +14,7 @@
   </p>
 
 <p align="center">This github is unfinished and is subjected to change - hence for why it seems a bit messy.  </sub> </p>
-<p align="center"> <sub> If you follow me expecting to be followed back, then don't even bother. I do not, and will not follow back anyone on github, except for 1 person, and (perhaps) 2 people if she decides to make herself a github page. </sub> </p>
+<p align="center"> <sub> If you follow me expecting to be followed back, then don't even bother. I do not, and will not follow back anyone on github, except for 2 people, and I intend to keep it that way. </sub> </p>
 
 <hr>
 
