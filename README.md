@@ -7,7 +7,7 @@
   </p>
 
 <p align="center">https://verciless.atabook.org/ </p>
-<p align="center"> <sub> Leave me a message here. I do cosplay requests (as in, i have run out of cosplay ideas, so i might make a cosplay for you if ya want me to) and I take song reccomendations as well - just send a link a long with it. </sub> </p>
+<p align="center"> <sub> Leave me a message here. I try to always respond, but I might be late in doing so. </sub> </p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/f4c978d6-fcc6-4b36-b45b-b445c3225771"
