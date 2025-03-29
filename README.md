@@ -4,7 +4,6 @@
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/bfe9e897-7e10-491e-91bd-3b1a3a3b8fe3"
-
   </p>
 
 
@@ -20,7 +19,7 @@
 ***<p align="center"> Before you continue, there are very personal topics ahead, shown publicly for my own comfort. If you feel uncomfortable with these topics, do not read any further. 💤 </p>***
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/53936536-755d-40c4-89e8-d842268606b3"
+<img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
 </p>
 
 **-Some personal things** 🌀
@@ -34,7 +33,7 @@
 ✦ Additionally, i'm very sorry if I may frequently come off as rude, or mean. I truly do not mean to - as I am not that kind of person, and have an issue with controling my tone through text. I also take things seriously and fail to realize when someone is trying to say something in a joking manner - so please be cautious about that. Or i may be being mean on purpose if you annoy the fuck out of me and won't leave me alone - at that point I really have no patience to continue trying to be nice.
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/53936536-755d-40c4-89e8-d842268606b3"
+<img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
 </p>
 
 **-Random silly things** (ill add more when i feel like it) 🌀
@@ -52,7 +51,7 @@
 ✦ (Heavy) Kins -> Mikaela Hyakuya and Idia Shroud
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/53936536-755d-40c4-89e8-d842268606b3"
+<img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
 </p>
 
 ![Screenshot 2025-03-01 100806](https://github.com/user-attachments/assets/5a8539d6-19ee-4f60-9e4a-5bff07a901c4) ![Screenshot 2025-03-01 100742](https://github.com/user-attachments/assets/42cc5784-5b7a-4445-ae90-46ed620bbc57) If you are any of the following people shown: do not interact with me.
