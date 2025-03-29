@@ -10,7 +10,7 @@
 <p align="center"> <sub> Leave me a message here. I try to always respond, but I might be late in doing so. </sub> </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/f3a99a3d-378a-4713-9c1b-64d429e11905"
+<img src="https://github.com/user-attachments/assets/74bdb856-d2a9-4445-8c98-5578cb6296ab"
 
   </p>
 
