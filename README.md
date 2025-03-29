@@ -3,7 +3,8 @@
   </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/02525867-6723-49cf-8bdb-5872bc4d53ac"
+<img src="https://github.com/user-attachments/assets/64d0c3e1-b2c0-42fb-9cca-9b8439a18a4f"
+
   </p>
 
 <p align="center">https://verciless.atabook.org/ </p>
