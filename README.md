@@ -13,10 +13,9 @@
 <img src="https://github.com/user-attachments/assets/f4c978d6-fcc6-4b36-b45b-b445c3225771"
   </p>
 
-<p align="center">This github is unfinished and is subjected to change - hence for why it seems a bit messy.  </sub> </p>
 <p align="center"> <sub> If you follow me expecting to be followed back, then don't even bother. I do not, and will not follow back anyone on github, except for 2 people, and I intend to keep it that way. </sub> </p>
 
-<p> **Before you continue, there are*** ***very*** **personal topics ahead, shown publicly for my own comfort. If you feel uncomfortable with these topics, do not read any further.** </p>
+***<p align="center"> Before you continue, there are very personal topics ahead, shown publicly for my own comfort. If you feel uncomfortable with these topics, do not read any further. </p>***
 
 <hr>
 
