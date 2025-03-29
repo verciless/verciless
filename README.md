@@ -1,5 +1,5 @@
 <p align="Center">
-<img src="https://komarev.com/ghpvc/?username=verciless&label=Pitaya's+Viewers&color=f00832"
+<img src="https://komarev.com/ghpvc/?username=verciless&label=Little+Idia's!'s&color=0099ff"
   </p>
 
 <p align="center">
@@ -9,6 +9,10 @@
 
 <p align="center">https://verciless.atabook.org/ </p>
 <p align="center">Leave me a message here. I try to always respond, but I might be late in doing so ~🪼</p>
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
+</p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/74bdb856-d2a9-4445-8c98-5578cb6296ab"
