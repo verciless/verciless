@@ -9,7 +9,7 @@
 
 
 <p align="center">https://verciless.atabook.org/ </p>
-<p align="center"> <sub> Leave me a message here. I try to always respond, but I might be late in doing so. </sub> </p>
+<p align="center">Leave me a message here. I try to always respond, but I might be late in doing so ~🪼</p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/74bdb856-d2a9-4445-8c98-5578cb6296ab"
@@ -17,13 +17,13 @@
 
 <p align="center"> <sub> If you follow me expecting to be followed back, then don't even bother. I do not, and will not follow back anyone on github, except for 2 people, and I intend to keep it that way. </sub> </p>
 
-***<p align="center"> Before you continue, there are very personal topics ahead, shown publicly for my own comfort. If you feel uncomfortable with these topics, do not read any further. </p>***
+***<p align="center"> Before you continue, there are very personal topics ahead, shown publicly for my own comfort. If you feel uncomfortable with these topics, do not read any further. 💤 </p>***
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/53936536-755d-40c4-89e8-d842268606b3"
 </p>
 
-**-Some personal things**
+**-Some personal things** 🌀
 
 ✦ I often, very often, tend to distance myself from my friends or people I know online. I have a bad habit of fixating on the friends I interact with online, to the point where it has become unhealthy for me. Because of this, I don't engage much with the people I've added, unless we are close. I never interact first with my friends because I feel nervous about possibly annoying them to the point where they no longer want anything to do with me. Additionally, since I sometimes often feel lonely on PonyTown and struggle to have proper social interactions despite yearning for them, I become unhealthily jealous over and possessive over the friends I am close to, which is overall affecting my mental state. I keep my friend requests off, and do not add anyone unless I know, or feel comfortable with you.
 
@@ -37,7 +37,7 @@
 <img src="https://github.com/user-attachments/assets/53936536-755d-40c4-89e8-d842268606b3"
 </p>
 
-**-Random silly things** (ill add more when i feel like it) 
+**-Random silly things** (ill add more when i feel like it) 🌀
 
 ✦ I LOVE orcas!! they're my favorite animals, and I love everything about them. I Also like marine life in general, and want to be a marine biologist in the future!
 
