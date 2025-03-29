@@ -38,7 +38,11 @@
 
 ✦ I love drawing, and it is one of my favorite hobbies. Unfortunately though I do not feel comfortable in posting most of my art, as I am a victim to art theft.
 
+✦ When speaking in ponytown, I usually send my messages in short, seperate parts because I am a slow typer when it comes to typing out longer responses.
+
 ✦ My Favorite characters (as of right now) Are Pitaya Dragon, Longan Dragon, Shadow milk, Mikaela Hyakuya, Malleus Draconia, and Hua Cheng
+
+✦ (Heavy) Kins -> Mikaela Hyakuya and Idia Shroud
 
 <hr>
 
