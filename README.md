@@ -10,7 +10,8 @@
 <p align="center"> <sub> Leave me a message here. I try to always respond, but I might be late in doing so. </sub> </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/f4c978d6-fcc6-4b36-b45b-b445c3225771"
+<img src="https://github.com/user-attachments/assets/0bb58b3d-5bf1-49e9-b9e0-ac8af96bb6ce"
+
   </p>
 
 <p align="center"> <sub> If you follow me expecting to be followed back, then don't even bother. I do not, and will not follow back anyone on github, except for 2 people, and I intend to keep it that way. </sub> </p>
