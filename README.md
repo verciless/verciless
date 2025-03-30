@@ -52,7 +52,7 @@
 
 ✦ My Favorite characters (as of right now) Are Pitaya Dragon, Longan Dragon, Shadow milk, Mikaela Hyakuya, Malleus Draconia, and Hua Cheng
 
-✦ (Heavy) Kins -> Mikaela Hyakuya and Idia Shroud
+✦ My comfort characters/(characters I deeply relate to) -> Mikaela Hyakuya and Idia Shroud
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
