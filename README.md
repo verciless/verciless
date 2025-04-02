@@ -18,7 +18,7 @@
 <img src="https://github.com/user-attachments/assets/74bdb856-d2a9-4445-8c98-5578cb6296ab"
   </p>
 
-<p align="center"> <sub> If you follow me expecting to be followed back, then don't even bother. I do not, and will not follow back anyone on github, except for 2 people, and I intend to keep it that way. </sub> </p>
+<p align="center"> <sub> If you follow me expecting to be followed back, then I am sorry, but I do not, and will not follow back anyone on github - except for 2 people, and I intend to keep it that way. </sub> </p>
 
 ***<p align="center"> Before you continue, there are very personal topics ahead, shown publicly for my own comfort. If you feel uncomfortable with these topics, do not read any further. 💤 </p>***
 
