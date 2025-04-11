@@ -2,6 +2,8 @@
 <img src="https://komarev.com/ghpvc/?username=verciless&label=Little+Idia's!&color=0099ff"
   </p>
 
+<p align="center"> <code style="color" : lightskyblue">Maybe in another universe, I wasn't so different.</code>  </p> 
+
 <p align="center">
 <img src="https://github.com/user-attachments/assets/bfe9e897-7e10-491e-91bd-3b1a3a3b8fe3"
   </p>
