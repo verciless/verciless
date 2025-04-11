@@ -26,6 +26,24 @@
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
 </p>
 
+**-Random things about myself** (ill add more when i feel like it) 🌀
+
+✦ I absolutely love orca's. they're my favorite animals, and I love everything about them. I Also like marine life in general, and want to be a marine biologist in the future.
+
+✦ My favorite book is called "The Wrap Up List" and it is amazing!
+
+✦ I love drawing, and it is one of my favorite hobbies. Unfortunately though I do not feel comfortable in posting most of my art, as I am a victim to art theft.
+
+✦ When speaking in ponytown, I usually send my messages in short, seperate parts because I am a slow typer when it comes to typing out longer responses.
+
+✦ My Favorite characters (as of right now) Are Pitaya Dragon, Longan Dragon, Idia Shroud, Mikaela Hyakuya, Malleus Draconia, and Hua Cheng
+
+✦ My comfort characters/(characters I deeply relate to) -> Mikaela Hyakuya and Idia Shroud
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
+</p>
+
 **-Some personal things** 🌀
 
 ✦ I often, very often, tend to distance myself from my friends or people I know online. I have a bad habit of fixating on the friends I interact with online, to the point where it has become unhealthy for me. Because of this, I don't engage much with the people I've added, unless we are close. I never interact first with my friends because I feel nervous about possibly annoying them to the point where they no longer want anything to do with me. Additionally, since I sometimes often feel lonely on PonyTown and struggle to have proper social interactions despite yearning for them, I become unhealthily jealous over and possessive over the friends I am close to, which is overall affecting my mental state. I keep my friend requests off, and do not add anyone unless I know, or feel comfortable with you.
@@ -34,25 +52,7 @@
 
 ✦ With my social activity on Ponytown, I am *almost* always silent, ***BUT*** I am starting to socialize more with others, despite it sometimes being hard. I will only ever speak if you're cosplaying something I like, if the game I am playing requires me to speak, If i am with friends, or through whispers. If you try to speak to me outside of whispers, I will not respond 80% of the time because I am frequently offtab. I always play: FTS, GTC, FASHION ROULETTE, MAFIA
 
-✦ Additionally, i'm very sorry if I may frequently come off as rude, or mean. I truly do not mean to - as I am not that kind of person, and have an issue with controling my tone through text. I also take things seriously and fail to realize when someone is trying to say something in a joking manner - so please be cautious about that. Or i may be being mean on purpose if you annoy the fuck out of me and won't leave me alone - at that point I really have no patience to continue trying to be nice.
-
-<p align="center">
-<img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
-</p>
-
-**-Random silly things** (ill add more when i feel like it) 🌀
-
-✦ I LOVE orcas!! they're my favorite animals, and I love everything about them. I Also like marine life in general, and want to be a marine biologist in the future!
-
-✦ My favorite book is called "The Wrap Up List" and it is amazing!!
-
-✦ I love drawing, and it is one of my favorite hobbies. Unfortunately though I do not feel comfortable in posting most of my art, as I am a victim to art theft.
-
-✦ When speaking in ponytown, I usually send my messages in short, seperate parts because I am a slow typer when it comes to typing out longer responses.
-
-✦ My Favorite characters (as of right now) Are Pitaya Dragon, Longan Dragon, Shadow milk, Mikaela Hyakuya, Malleus Draconia, and Hua Cheng
-
-✦ My comfort characters/(characters I deeply relate to) -> Mikaela Hyakuya and Idia Shroud
+✦ Additionally, i'm very sorry if I may frequently come off as rude, or mean. I truly do not mean to - as I am not that kind of person, and have an issue with controling my tone through text. I also take things seriously and fail to realize when someone is trying to say something in a joking manner - so please be cautious about that.
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
