@@ -21,7 +21,7 @@
   </p>
 
 <p align="center"> <sub> 
-  🇺🇸🇩🇪 </sub> </p>
+Follow these cool people: @viemeva, @hanpilled, @AdorableCattyy </sub> </p>
 
 ***<p align="center"> Before you continue, there are very personal topics ahead, shown publicly for my own comfort. If you feel uncomfortable with these topics, do not read any further. 💤 </p>***
 
