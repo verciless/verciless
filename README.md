@@ -20,8 +20,8 @@
 <img src="https://github.com/user-attachments/assets/74bdb856-d2a9-4445-8c98-5578cb6296ab"
   </p>
 
-<p align="center"> <sub> 
-Follow these cool people: @viemeva, @hanpilled, @AdorableCattyy </sub> </p>
+<p align="center"> <image src="https://github.com/user-attachments/assets/3857cb0e-2acf-4b01-b77e-0ef37e7bad6e"
+ </p>
 
 ***<p align="center"> Before you continue, there are very personal topics ahead, shown publicly for my own comfort. If you feel uncomfortable with these topics, do not read any further. 💤 </p>***
 
