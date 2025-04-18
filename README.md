@@ -20,8 +20,14 @@
 <img src="https://github.com/user-attachments/assets/74bdb856-d2a9-4445-8c98-5578cb6296ab"
   </p>
 
-<p align="center"> <image src="https://github.com/user-attachments/assets/3857cb0e-2acf-4b01-b77e-0ef37e7bad6e"
- </p>
+
+ ![IMG_5154](https://github.com/user-attachments/assets/646399f7-f060-4859-9f99-2f10148e0563) ![IMG_5155](https://github.com/user-attachments/assets/41c4a554-21d2-4dd7-abe8-122569284d87) ![IMG_5156](https://github.com/user-attachments/assets/d4803d8d-49f8-42a0-b265-2f5026f14865) ![IMG_5157](https://github.com/user-attachments/assets/8a5cd4f0-fc05-49fc-ad88-7b54b66b164d) ![IMG_5157](https://github.com/user-attachments/assets/b02b0943-f84b-4b3e-b5e6-61c18d4ac22f) ![IMG_5158](https://github.com/user-attachments/assets/5644e853-ea60-4df8-b381-a4ac762ac3e6)
+
+
+
+
+
+
 
 ***<p align="center"> Before you continue, there are very personal topics ahead, shown publicly for my own comfort. If you feel uncomfortable with these topics, do not read any further. 💤 </p>***
 
