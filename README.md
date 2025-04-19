@@ -21,7 +21,7 @@
   </p>
 
 
-<p align="Center">  <sub> Info n stuff </sub>  </p>
+<p align="Center"> <img src="https://github.com/user-attachments/assets/191af948-2c1a-4760-b458-a4ae8bd0cb25"  </p>
 
 
 
