@@ -4,7 +4,7 @@
 
 <p align="center"> <code style="color" : lightskyblue">Maybe in another universe, I wasn't so different.</code>  </p> 
 
-***NOTE(added 4/22/2025):*** I am looking for someone to do a skin trade with me, or someone who is open to gifting. I have been trying to make a good Longan Dragon cosplay for a few months now, but have been failing miserably every time I have tried. Therefore, I am open to doing skin trades for a Longan Dragon cosplay. Thank you. ❤️
+***NOTE(added 4/22/2025):*** I am looking for someone to do a skin trade with me, or someone who is open to gifting. I have been trying to make a good Longan Dragon cosplay for a few months now, but have been failing miserably every time I try. Therefore, I am open to doing skin trades for a Longan Dragon cosplay. Thank you. ❤️
 </p>
 
 <p align="center">
