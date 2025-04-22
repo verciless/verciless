@@ -4,13 +4,16 @@
 
 <p align="center"> <code style="color" : lightskyblue">Maybe in another universe, I wasn't so different.</code>  </p> 
 
+***NOTE(added 4/22/2025):*** I am looking for someone to do a skin trade with me, or someone who is open to gifting. I have been trying to make a good Longan Dragon cosplay based off my own style, but have been failing miserably every time I have tried. Therefore, I am open to doing skin trades for a Longan Dragon cosplay. Thank you. ❤️
+</p>
+
 <p align="center">
 <img src="https://github.com/user-attachments/assets/bfe9e897-7e10-491e-91bd-3b1a3a3b8fe3"
   </p>
 
 
 <p align="center">https://verciless.atabook.org/ </p>
-<p align="center">Leave me a message here. I try to always respond, but I might be late in doing so ~🪼</p>
+<p align="center">Leave me a message here. I try to always respond, but I might be late in doing so ~🪼
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
