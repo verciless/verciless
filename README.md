@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=verciless&label=Little+Idia's!&color=0099ff"
   </p>
 
-<p align="center"> <code style="color" : lightskyblue">Maybe in another universe, I wasn't so different.</code>  </p> 
+<p align="center"> <code style="color" : lightskyblue">Follow my github for a FREE, LIFETIME supply of chicken alfredo 🤑 </code>  </p> 
 
 </p>
 
@@ -11,8 +11,8 @@
   </p>
 
 
-***<p align="center"> 𖹭 sign atabook*** ***<a href="https://verciless.atabook.org/">here ⤸</a>*** 💤 </p>
-**<p align="center"> Marshal 𖹭 female . she/her(preferably) 𖹭 Idia Shroud fan ◡ Longan Dragon fan** 🥞 </p>
+***<p align="center"> ♡ sign atabook*** ***<a href="https://verciless.atabook.org/">here ⤸</a>*** 💤 </p>
+**<p align="center"> Marshal ♡ female . she/her(preferably) ♡ Idia Shroud fan ◡ Longan Dragon fan** 🥞 </p>
 **<p align="center"> quiet usually ◡ but i'm always C+H free** 🎧 gtc player </p>
 
 <p align="center">
