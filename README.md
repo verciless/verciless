@@ -11,8 +11,7 @@
   </p>
 
 
-<p align="center">https://verciless.atabook.org/ </p>
-<p align="center">Leave me a message here. I try to always respond, but I might be late in doing so ~🪼
+***<p align="center"> sign atabook*** ***<a href="https://verciless.atabook.org/">here</a>*** 💤 </p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
