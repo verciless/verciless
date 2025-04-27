@@ -13,7 +13,7 @@
 
 ***<p align="center"> ♡ sign atabook*** ***<a href="https://verciless.atabook.org/">here ⤸</a>*** 💤 </p>
 **<p align="center"> Marshal ♡ female . she/her(preferably) ♡ Idia Shroud fan ◡ Longan Dragon fan** 🥞 </p>
-**<p align="center"> quiet usually ◡ but i'm always C+H free** 🎧 gtc player </p>
+**<p align="center"> quiet usually ◡ but i'm always C+H free 🎧 gtc player** </p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
