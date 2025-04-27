@@ -23,16 +23,7 @@
 <img src="https://github.com/user-attachments/assets/74bdb856-d2a9-4445-8c98-5578cb6296ab"
   </p>
 
-
-<p align="Center"> <img src="https://github.com/user-attachments/assets/191af948-2c1a-4760-b458-a4ae8bd0cb25"  </p>
-
-
-
-
-
-
-
-***<p align="center"> Im remaking this github, so it will be messy. 💤 </p>***
+**<p align="center"> I keep my friend requets off ◡ I am not currently interested in making new friends (unless I know you already) 💤 </p>**
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
