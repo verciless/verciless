@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=verciless&label=Little+Idia's!&color=0099ff"
   </p>
 
-<p align="center"> <code style="color" : lightskyblue">𝐅𝐨𝐥𝐥𝐨𝐰 𝐦𝐲 𝐠𝐢𝐭𝐡𝐮𝐛 𝐟𝐨𝐫 𝐚 𝐅𝐑𝐄𝐄, 𝐋𝐈𝐅𝐄𝐓𝐈𝐌𝐄 𝐬𝐮𝐩𝐩𝐥𝐲 𝐨𝐟 𝐜𝐡𝐢𝐜𝐤𝐞𝐧 𝐚𝐥𝐟𝐫𝐞𝐝𝐨 🤑 (𝐲𝐨𝐮 𝐤𝐧𝐨𝐰 𝐲𝐨𝐮 𝐰𝐚𝐧𝐭 𝐢𝐭...) </code>  </p>
+<p align="center"> <code style="color" : lightskyblue">𝐅𝐨𝐥𝐥𝐨𝐰 𝐦𝐲 𝐠𝐢𝐭𝐡𝐮𝐛 𝐟𝐨𝐫 𝐚 𝐅𝐑𝐄𝐄, 𝐋𝐈𝐅𝐄𝐓𝐈𝐌𝐄 𝐬𝐮𝐩𝐩𝐥𝐲 𝐨𝐟 𝐜𝐡𝐢𝐜𝐤𝐞𝐧 𝐚𝐥𝐟𝐫𝐞𝐝𝐨 🤑</code>  </p>
 
 </p>
 
