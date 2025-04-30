@@ -11,9 +11,9 @@
   </p>
 
 
-***<p align="center"> ♡ sɪɢɴ ᴀᴛᴀʙᴏᴏᴋ*** ***<a href="https://verciless.atabook.org/">ʜᴇʀᴇ ⤸</a>*** 💤 </p>
-**<p align="center"> Mᴀʀsʜᴀʟ/Rᴇᴀʟᴢʏʏ ♡ ғᴇᴍᴀʟᴇ . sʜᴇ/ʜᴇʀ(ᴘʀᴇғᴇʀᴀʙʟʏ) ♡ Iᴅɪᴀ Sʜʀᴏᴜᴅ ғᴀɴ ◡ Lᴏɴɢᴀɴ Dʀᴀɢᴏɴ ғᴀɴ** 🥞 </p>
-**<p align="center"> ᴏ̨ᴜɪᴇᴛ ᴜsᴜᴀʟʟʏ ◡ ʙᴜᴛ ɪ'ᴍ ᴀʟᴡᴀʏs C+H ғʀᴇᴇ 🎧 ɢᴛᴄ ᴘʟᴀʏᴇʀ** </p>
+***<p align="center"> ♡ sign atabook*** ***<a href="https://verciless.atabook.org/">here ⤸</a>*** 💤 </p>
+**<p align="center"> Marshal/Realzyy ♡ female . she/her(preferably) ♡ Idia Shroud fan ◡ Longan Dragon fan** 🥞 </p>
+**<p align="center"> quiet usually ◡ but i'm always C+H free 🎧 gtc player** </p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
