@@ -11,7 +11,7 @@
   </p>
 
 
-***<p align="center"> ♡ sign atabook*** ***<a href="https://verciless.atabook.org/">here ⤸</a>***💤 </p>
+***<p align="center"> ♡ sign atabook*** ***<a href="https://verciless.atabook.org/">here ⤸</a>*** 💤 </p>
 ***<p align="center"> Marshal/Realzyy ♡ female . she/her(preferably) ♡ Idia Shroud fan ◡ Longan Dragon fan*** 🥞 </p>
 ***<p align="center"> quiet usually ◡ but i'm always C+H free 🎧 gtc player*** </p>
 <p align="center">(EDIT: idk if its just me, but for some reason atabook has ads now??)</p>
