@@ -18,9 +18,15 @@
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
 </p>
 
+***<p align="center"> This is my first time doing this, but I am going to try out doing small commissions. I'm doing chibi commissions off of a base I use (made by me), and will be 3$ USD, and cashapp only (which sadly means I can only do commissions for people in the US and the UK, unless you use a VPN). Here are examples of what I will be doing, and what I am saving for. If you are interested, please email me: Daydzhin@gmail.com </p>***
+
 <p align="center">
-<img src="https://github.com/user-attachments/assets/74bdb856-d2a9-4445-8c98-5578cb6296ab"
-  </p>
+  <img src="https://github.com/user-attachments/assets/fcd9e78d-d3eb-4ab2-beda-3bcaa1dfa75d"
+    </p>
+
+***<p align="center"> what i'm saving for (20 usd) </p>***
+  <p align="center">
+  <img src="https://github.com/user-attachments/assets/a94eb2f7-6bf7-4df2-8920-58e406869850" </p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
