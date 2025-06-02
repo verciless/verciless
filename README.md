@@ -24,9 +24,9 @@
   <img src="https://github.com/user-attachments/assets/fcd9e78d-d3eb-4ab2-beda-3bcaa1dfa75d"
     </p>
 
-***<p align="center"> what i'm saving for (20 usd) </p>***
+***<p align="center"> <a href="https://plushwonderland.com/products/presale-plush-wonderland-the-digital-mage-plush-20-cm-fanmade?_pos=1&_sid=16836d2de&_ss=r&variant=42366555783345)">what i'm saving for (20 usd) </a> </p>***
   <p align="center">
-  <img src="https://github.com/user-attachments/assets/a94eb2f7-6bf7-4df2-8920-58e406869850" </p>
+  <img src="https://github.com/user-attachments/assets/0640c65c-56da-428c-bb84-b6b5aa3d8327" </p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
