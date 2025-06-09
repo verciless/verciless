@@ -18,15 +18,13 @@
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
 </p>
 
-***<p align="center"> This is my first time doing this, but I am going to try out doing small commissions. I'm doing chibi commissions off of a base I use (made by me), and will be 3$ USD, and cashapp only (which sadly means I can only do commissions for people in the US and the UK, unless you use a VPN). Here are examples of what I will be doing, and what I am saving for. If you are interested, please email me: Daydzhin@gmail.com </p>***
-
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/fcd9e78d-d3eb-4ab2-beda-3bcaa1dfa75d"
-    </p>
-
-***<p align="center"> <a href="https://plushwonderland.com/products/presale-plush-wonderland-the-digital-mage-plush-20-cm-fanmade?_pos=1&_sid=16836d2de&_ss=r&variant=42366555783345)">what i'm saving for (20 usd) </a> </p>***
+ <p align="center">
+  <img src="https://github.com/user-attachments/assets/8d0bc2ef-9342-4c13-83a3-16c7b2a254c1"
+ </p>
+    
   <p align="center">
-  <img src="https://github.com/user-attachments/assets/e600d1bf-f3a8-421e-b2dd-83cbedad9cdf" </p>
+  <img src="https://github.com/user-attachments/assets/1360043f-6f04-4273-b3ad-0468d7448fea"
+ </p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ca46c72c-8d98-499f-a31c-01df24935e77"
