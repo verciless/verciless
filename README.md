@@ -28,3 +28,8 @@
 </p>
 
 <p align="center">#1 chicken alfredo enthusiast</p>
+
+<p align="center">
+<img src="![Untitled599_20250617153219](https://github.com/user-attachments/assets/7fcddf88-5083-4c13-826b-67b185916af3)
+
+
