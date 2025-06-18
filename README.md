@@ -1,7 +1,6 @@
 <p align="Center">
 <img src="https://komarev.com/ghpvc/?username=verciless&label=Little+Idia's!&color=0099ff"
   </p>
-  <p align="center"> <img src="https://github.com/user-attachments/assets/41a015c9-2bfc-4382-9770-08287e8d8a25"> </p>
 
 <p align="center"> <code style="color" : lightskyblue">𝐅𝐨𝐥𝐥𝐨𝐰 𝐦𝐲 𝐠𝐢𝐭𝐡𝐮𝐛 𝐟𝐨𝐫 𝐚 𝐅𝐑𝐄𝐄, 𝐋𝐈𝐅𝐄𝐓𝐈𝐌𝐄 𝐬𝐮𝐩𝐩𝐥𝐲 𝐨𝐟 𝐜𝐡𝐢𝐜𝐤𝐞𝐧 𝐚𝐥𝐟𝐫𝐞𝐝𝐨 🤑</code>  </p>
 
@@ -15,6 +14,7 @@
 
 ***<p align="center"> ♡ sign atabook*** ***<a href="https://verciless.atabook.org/">here ⤸</a>*** 💤 </p>
 <div align="center">
+    <p align="center"> <img src="https://github.com/user-attachments/assets/41a015c9-2bfc-4382-9770-08287e8d8a25"> </p>
 <strong>「 Marshal 」୨ৎ ⋮ She/Her ࿔* ┆ .☘︎  Biggest Idia fan ^_^ ~~ </strong>
   <img src="https://github.com/user-attachments/assets/df844da7-7313-4d92-a924-46f5b118d0d0" alt="aromantic" style="vertical-align: middle; display: inline;">
 </div>
@@ -35,7 +35,6 @@
 <img src="https://github.com/user-attachments/assets/7b968b35-408f-424f-895c-18dca6786395">
 <img src="https://github.com/user-attachments/assets/d746d10a-8711-4e3d-bfbf-fc0e3121e4f0">
   <img src="https://github.com/user-attachments/assets/b3c1c127-5059-40b3-85c4-0dd19646744d">
-
 </p>
   
  <p align="center"> <img src="https://github.com/user-attachments/assets/97de56bd-b7a1-4e1f-9c5d-b0aaa5fe8127">
