@@ -16,7 +16,6 @@
 <div align="center">
     <p align="center"> <img src="https://github.com/user-attachments/assets/41a015c9-2bfc-4382-9770-08287e8d8a25"> </p>
 <strong>「 Marshal 」୨ৎ ⋮ She/Her ࿔* ┆ Biggest Idia fan ^_^ ~~ </strong>
-  <img src="https://github.com/user-attachments/assets/df844da7-7313-4d92-a924-46f5b118d0d0" alt="aromantic" style="vertical-align: middle; display: inline;">
 </div>
 
 ***<p align="center">quiet usually ◡ but i'm always C+H free 🎧 gtc player</p>***
