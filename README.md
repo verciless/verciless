@@ -50,9 +50,9 @@
 <img src="https://github.com/user-attachments/assets/03e24e29-63da-47c9-87c4-4f31d175e1d4">
 <img src="https://github.com/user-attachments/assets/24174d42-45ed-4de8-8ea3-48a4e64eda2a">
 <img src="https://github.com/user-attachments/assets/8de92f86-4472-48c3-98b7-37ade807dec1">
-
 </p>
-  
+
+ <p align="center">FAVORITE CHARACTERS </p>
  <p align="center"> <img src="https://github.com/user-attachments/assets/97de56bd-b7a1-4e1f-9c5d-b0aaa5fe8127">
 <img src="https://github.com/user-attachments/assets/981dd30e-cfec-4fcd-b441-9870d0fda1da">
 <img src="https://github.com/user-attachments/assets/6b3f208e-1d8c-4d3b-81c3-408a43c584f0">
