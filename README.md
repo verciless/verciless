@@ -24,7 +24,7 @@
 
 <hr>
 
-***<p align="center"> ♡ Bored? take*** ***<a href="https://www.quotev.com/quiz/16185748/Which-Twisted-Wonderland-character-are-you">this quiz </a>*** ***and tell me in my atabook which character you got / relate to the most! </p>***
+***<p align="center"> ♡ Bored? take*** ***<a href="https://www.quotev.com/quiz/16185748/Which-Twisted-Wonderland-character-are-you">this quiz </a>*** ***and tell me in my atabook which Twisted Wonderland character you got / relate to the most! </p>***
 
 <hr>
 
