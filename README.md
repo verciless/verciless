@@ -18,7 +18,7 @@
 <strong>「 Marshal 」୨ৎ ⋮ She/Her ࿔* ┆ Biggest Idia fan ^_^ </strong>
 </div>
 
-***<p align="center"> quiet usually ◡ but i'm always C+H free 🎧 gtc player</p>***
+***<p align="center"> quiet usually ◡ but i'm always C+H free 🎧 gtc player ~ I block freely. </p>***
 
 ***<p align="center">I can be either the shyest person in the world, or the most talkative person ever.. 50/50***
 
