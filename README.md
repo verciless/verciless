@@ -82,7 +82,7 @@
 
 **<p align="center">MY IDIA SHROUD PLUSH!** ⬇️</p>
 <p align="center">
-<img src="https://github.com/user-attachments/assets/5737a94c-8a6f-43e7-972a-ae25347917d1" </p>
+<img src="https://github.com/user-attachments/assets/be435306-d4bf-4e22-a179-2cedcd500ea9" </p>
 
 
 
