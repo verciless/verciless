@@ -80,7 +80,7 @@
 <img src="https://github.com/user-attachments/assets/65941e6a-1520-428b-80c5-c8b4e57d72cd" </p>
 
 
-**<p align="center">MY IDIA SHROUD PLUSH!** </p>
+**<p align="center">MY IDIA SHROUD PLUSH!** ⬇️</p>
 <p align="center">
 <img src="https://github.com/user-attachments/assets/5737a94c-8a6f-43e7-972a-ae25347917d1" </p>
 
