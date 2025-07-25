@@ -57,9 +57,7 @@
 </p>
 
  <p align="center">FAVORITE CHARACTERS </p>
- <p align="center"> <img src="https://github.com/user-attachments/assets/97de56bd-b7a1-4e1f-9c5d-b0aaa5fe8127">
-<img src="https://github.com/user-attachments/assets/981dd30e-cfec-4fcd-b441-9870d0fda1da">
-<img src="https://github.com/user-attachments/assets/6b3f208e-1d8c-4d3b-81c3-408a43c584f0">
+ <p align="center"> 
 <img src="https://github.com/user-attachments/assets/ca8fe341-7d04-4290-85d0-5d5bfde963ff">
 <img src="https://github.com/user-attachments/assets/63adf2e4-7783-4a6f-ab3d-8f7ebacd0966">
 <img src="https://github.com/user-attachments/assets/995c92b2-5c6b-4da3-9ccf-b627af3c239f">
