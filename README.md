@@ -80,10 +80,5 @@
 <img src="https://github.com/user-attachments/assets/65941e6a-1520-428b-80c5-c8b4e57d72cd" </p>
 
 
-**<p align="center">MY IDIA SHROUD PLUSH!** ⬇️</p>
-<p align="center">
-<img src="https://github.com/user-attachments/assets/be435306-d4bf-4e22-a179-2cedcd500ea9" </p>
-
-
 
 
