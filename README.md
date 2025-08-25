@@ -25,7 +25,7 @@
 
 <p align="Center">
 <img src="https://github.com/user-attachments/assets/f5b857d4-ccbd-474d-8ff3-386aaebd7abe" </p>
-
+<hr>
 
 ***<p align="center"> ♡ Bored? take*** ***<a href="https://www.quotev.com/quiz/16185748/Which-Twisted-Wonderland-character-are-you">this quiz </a>*** ***and tell me in my atabook which Twisted Wonderland character you got / relate to the most! </p>***
 
@@ -76,8 +76,7 @@
 
  </p>
 
-<p align="Center">
-<img src="https://github.com/user-attachments/assets/6cff8b9b-1fb0-4f40-b5a5-d07923cda9ad" </p>
+<hr>
 
 
 <p align="center">
