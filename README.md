@@ -23,7 +23,9 @@
 
 ***<p align="center">I can be either the shyest person in the world, or the most talkative person ever.. 50/50***
 
-<hr>
+<p align="Center">
+<img src="https://github.com/user-attachments/assets/f5b857d4-ccbd-474d-8ff3-386aaebd7abe" </p>
+
 
 ***<p align="center"> ♡ Bored? take*** ***<a href="https://www.quotev.com/quiz/16185748/Which-Twisted-Wonderland-character-are-you">this quiz </a>*** ***and tell me in my atabook which Twisted Wonderland character you got / relate to the most! </p>***
 
@@ -74,7 +76,9 @@
 
  </p>
 
-<hr>
+<p align="Center">
+<img src="https://github.com/user-attachments/assets/6cff8b9b-1fb0-4f40-b5a5-d07923cda9ad" </p>
+
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/65941e6a-1520-428b-80c5-c8b4e57d72cd" </p>
