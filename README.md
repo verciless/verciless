@@ -27,12 +27,15 @@ $\color{#73C72E}{\textsf{"Misinformed knowledge is the source of all prejudice.}
 <img src="https://komarev.com/ghpvc/?username=verciless&label=Hatchlings&color=3FC900"
   </p>
 
-<hr>
+  <hr>
+<p align="center"> 
+<img src="https://github.com/user-attachments/assets/2200a677-fa24-44ea-a5c3-91d38632949e">
+</p>
 
 <p align="center"> 
-   $\color{#73C72E}{\textsf{♡ Bored? take}}$ <a href="https://www.quotev.com/quiz/16185748/Which-Twisted-Wonderland-character-are-you">this quiz </a> $\color{#73C72E}{\textsf{and tell me in my atabook which Twisted Wonderland character you got / relate to the most!}}$ </p>
-
-<hr>
+   $\color{#73C72E}{\textsf{♡ Bored? take}}$ <a href="https://www.quotev.com/quiz/16185748/Which-Twisted-Wonderland-character-are-you">this quiz </a> $\color{#73C72E}{\textsf{and tell me in my atabook which Twisted Wonderland character you got / relate to the most!}}$
+</p>
+  <hr>
 
 <p align="Center">
 <img src="https://github.com/user-attachments/assets/6e150b0c-860c-4fe3-a151-5eae0bcf2cda">
