@@ -70,6 +70,8 @@ $\color{#73C72E}{\textsf{"Misinformed knowledge is the source of all prejudice.}
 <img src="https://github.com/user-attachments/assets/0d3c78b3-bc12-4e7a-b9b0-75d9a9f71ee7">
 </p>
 
+<p align="center"
   $\color{#73C72E}{\textsf{⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}}$
+</p>
 
 this is still a work in progress, uhm ok? okie.....
