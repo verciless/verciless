@@ -42,7 +42,10 @@ $\color{#73C72E}{\textsf{"Misinformed knowledge is the source of all prejudice.}
 <img width="200" height="200" alt="Untitled888_20251103233800" src="https://github.com/user-attachments/assets/2105bce6-d3ab-44ab-9b34-841e3b353370"></p>
 </table>
 
-  <hr>
+  <p align="center">
+  $\color{#73C72E}{\textsf{⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}}$
+</p>
+
 <p align="center"> 
 <img src="https://github.com/user-attachments/assets/2200a677-fa24-44ea-a5c3-91d38632949e">
 </p>
