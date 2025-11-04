@@ -40,9 +40,6 @@ $\color{#73C72E}{\textsf{"Misinformed knowledge is the source of all prejudice.}
 
 <img src="https://github.com/user-attachments/assets/4a65425d-599f-4518-a0c4-05e4b9cb1dfc">
 <img width="200" height="200" alt="Untitled888_20251103233800" src="https://github.com/user-attachments/assets/2105bce6-d3ab-44ab-9b34-841e3b353370"></p>
-
-
-this is still a work in progress, uhm ok? okie.....
 </table>
 
   <hr>
@@ -91,3 +88,5 @@ this is still a work in progress, uhm ok? okie.....
 <p align="center">
   $\color{#73C72E}{\textsf{⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}}$
 </p>
+
+this is still a work in progress, uhm ok? okie.....
