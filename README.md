@@ -74,4 +74,17 @@ $\color{#73C72E}{\textsf{"Misinformed knowledge is the source of all prejudice.}
   $\color{#73C72E}{\textsf{⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}}$
 </p>
 
+<div align="center">
+<table border="2">
+     <tr>
+       <td>
+         <br>
+         ${\textsf{\color{#73C72E}ABOUT ME!}}$ 
+<p align="center"> <kbd>$\color{#77b474}{\textsf{My name is marshal .. My pronouns are mainly she/her, though I generally dont care what pronouns you give me.}}$<br> <br>$\color{#77b474}{\textsf{I'm usually a quiet person (unless im not around a friend) and probably won't talk to anyone outside of parties, whispers, or friends.}}$<br><br>$\color{#77b474}{\textsf{I also never interact first due to being too nervous / shy.}}$<br>&nbsp;</kbd> 
+   </div>
+  
+
+<img src="https://github.com/user-attachments/assets/4a65425d-599f-4518-a0c4-05e4b9cb1dfc"></p>
+
+
 this is still a work in progress, uhm ok? okie.....
