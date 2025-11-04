@@ -84,7 +84,8 @@ $\color{#73C72E}{\textsf{"Misinformed knowledge is the source of all prejudice.}
    </div>
   
 
-<img src="https://github.com/user-attachments/assets/4a65425d-599f-4518-a0c4-05e4b9cb1dfc"></p>
+<img src="https://github.com/user-attachments/assets/4a65425d-599f-4518-a0c4-05e4b9cb1dfc">
+<img src="https://github.com/user-attachments/assets/8ac4d4a0-1211-4006-b670-8e44719c116f"> </p>
 
 
 this is still a work in progress, uhm ok? okie.....
