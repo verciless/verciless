@@ -37,11 +37,11 @@ $\color{#73C72E}{\textsf{"Misinformed knowledge is the source of all prejudice.}
 <p align="center"> <kbd>$\color{#73C72E}{\textsf{My name is marshal .. My pronouns are mainly she/her, though I generally dont care what pronouns you give me.}}$<br> <br>$\color{#73C72E}{\textsf{I'm usually a quiet person (unless i'm around a friend) and probably won't talk to anyone outside of parties, whispers, or friends.}}$<br><br>$\color{#73C72E}{\textsf{I also never interact first due to being too nervous / shy.}}$<br>&nbsp;</kbd> 
    </div>
 
-  <hr>
-
-<img src="https://github.com/user-attachments/assets/4a65425d-599f-4518-a0c4-05e4b9cb1dfc">
-<img width="200" height="200" alt="Untitled888_20251103233800" src="https://github.com/user-attachments/assets/2105bce6-d3ab-44ab-9b34-841e3b353370"></p>
+</hr>
 </table>
+
+</p align="center">
+<img src="https://github.com/user-attachments/assets/4a65425d-599f-4518-a0c4-05e4b9cb1dfc"> </p>
 
   <p align="center">
   $\color{#73C72E}{\textsf{⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}}$
