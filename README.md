@@ -34,7 +34,11 @@ $\color{#73C72E}{\textsf{"Misinformed knowledge is the source of all prejudice.}
        <td>
          <br>
          ${\textsf{\color{#73C72E}ABOUT ME!}}$ 
-<p align="center"> <kbd>$\color{#73C72E}{\textsf{My name is marshal .. My pronouns are mainly she/her, though I generally dont care what pronouns you give me.}}$<br> <br>$\color{#73C72E}{\textsf{I'm usually a quiet person (unless i'm around a friend) and probably won't talk to anyone outside of parties, whispers, or friends.}}$<br><br>$\color{#73C72E}{\textsf{I also never interact first due to being too nervous / shy.}}$<br>&nbsp;</kbd> 
+<p align="center"> <kbd>$\color{#73C72E}{\textsf{My name is marshal .. My pronouns are mainly she/her, though I generally dont care what pronouns you give me.}}$<br> <br>$\color{#73C72E}{\textsf{I'm usually a quiet person (unless i'm around a friend) and probably won't talk to anyone outside of parties, whispers, or friends.}}$<br><br>$\color{#73C72E}{\textsf{I also never interact first due to being too nervous / shy.}}$<br>
+</hr>
+  <br>$\color{#73C72E}{\textsf{♡ If you're interested, take a look at my}}$ <a href="https://verciless.carrd.co">art dump! </a><br>
+  &nbsp;</kbd>
+</p>
    </div>
 
 </hr>
