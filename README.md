@@ -11,6 +11,7 @@ Remaking github readme page uhmmm work in progress. Heres hotdog Rodimus, ok?
 
   <hr>
 
+  <img src="https://github.com/user-attachments/assets/533c7221-e34b-4952-9c9f-206f55c22055" align="left" width="200">
 <p align="center">
       $\color{#FD8543}{\textsf{ᯓ}}$
     ꒰ ᧔ $\color{#FD8543}{\textsf{Marshal}}$ or Verciless ᧓ ꒱
@@ -31,16 +32,6 @@ Remaking github readme page uhmmm work in progress. Heres hotdog Rodimus, ok?
     <img src="https://github.com/user-attachments/assets/805469b1-4385-4142-9c69-5db8eaab0ec3">
 memory issues ᶻ 𝗓 𐰁 $\color{#FD8543}{\textsf{low energy}}$
   </p>
-
-<img src="image.png" align="left" width="200">
-
-Your text goes here. It will sit directly next to the image and wrap naturally.
-You can make this paragraph as long as you want.
-
-<img src="image.png" align="left" width="200">
-
-text will go here
-
 <br clear="left">
 
 
