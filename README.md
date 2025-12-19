@@ -16,7 +16,7 @@ Remaking github readme page uhmmm work in progress. Heres hotdog Rodimus, ok?
 </div>
 </p>
 
-  <img src="https://github.com/user-attachments/assets/7e9f9786-dfc8-4a83-94ae-2ca7a55dfb64" align="left" width="250">
+  <img src="https://github.com/user-attachments/assets/f42a6af6-499b-49cb-9d89-621c8142cd26" align="left" width="250">
 <p align="center">
       $\color{#FD8543}{\textsf{ᯓ}}$
     ꒰ ᧔ $\color{#FD8543}{\textsf{Marshal}}$ or Verciless ᧓ ꒱
