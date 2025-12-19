@@ -32,4 +32,17 @@ Remaking github readme page uhmmm work in progress. Heres hotdog Rodimus, ok?
 memory issues ᶻ 𝗓 𐰁 $\color{#FD8543}{\textsf{low energy}}$
   </p>
 
+<img src="image.png" align="left" width="200">
+
+Your text goes here. It will sit directly next to the image and wrap naturally.
+You can make this paragraph as long as you want.
+
+<img src="image.png" align="left" width="200">
+
+text will go here
+
+<br clear="left">
+
+
+
     <img src="https://github.com/user-attachments/assets/2f3721a7-000d-477a-82ef-6322b76c42ac">
