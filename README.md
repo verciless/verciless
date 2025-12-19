@@ -19,9 +19,9 @@ Remaking github readme page uhmmm work in progress. Heres hotdog Rodimus, ok?
   <img src="https://github.com/user-attachments/assets/f42a6af6-499b-49cb-9d89-621c8142cd26" align="left" width="250">
 <p align="center">
       $\color{#F5AE00}{\textsf{ᯓ}}$
-    ꒰ ᧔ $\color{#FD8543}{\textsf{Marshal}}$ or Verciless ᧓ ꒱
+    ꒰ ᧔ $\color{#FD8543}{\textsf{Marshal}}$ or $\color{#F5AE00}{\textsf{Verciless}}$ ᧓ ꒱
     <img src="https://github.com/user-attachments/assets/5536524e-bfd2-453a-a1c2-0c2225978680">
-⚝ 〔 $\color{#F5AE00}{\textsf{she}}$ . they 〕
+⚝ 〔 $\color{#FD8543}{\textsf{she}}$ . they 〕
     <img src="https://github.com/user-attachments/assets/f2f2163b-92bd-4ec1-bb04-bd36a7ba4c66">
   </p>
 
@@ -30,7 +30,7 @@ Remaking github readme page uhmmm work in progress. Heres hotdog Rodimus, ok?
          $\color{#FD8543}{\textsf{Rodimus}}$
     fan ⋮ ⌗ ┆
     <img src="https://github.com/user-attachments/assets/805469b1-4385-4142-9c69-5db8eaab0ec3">
-memory issues ᶻ 𝗓 𐰁 $\color{#FD8543}{\textsf{low energy}}$
+memory issues ᶻ 𝗓 𐰁 $\color{F5AE00}{\textsf{low energy}}$
 </p>
 
 <hr>
