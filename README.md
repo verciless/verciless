@@ -41,6 +41,10 @@ memory issues ᶻ 𝗓 𐰁 $\color{#FD8543}{\textsf{low energy}}$ ۶ৎ
 </p>
   <br clear="left">
 
+<hr>
 
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/4b4b1cab-5679-407a-bbf1-994bd4e05cc1" width="250">
+</p>
 
     <img src="https://github.com/user-attachments/assets/2f3721a7-000d-477a-82ef-6322b76c42ac">
