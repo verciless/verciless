@@ -34,7 +34,11 @@ memory issues ᶻ 𝗓 𐰁 $\color{#FD8543}{\textsf{low energy}}$
 </p>
 
 <hr>
-PICTURES N STUFF GO HERE
+
+  PICTURES N STUFF GO HERE
+<p align="center">
+    <img src="https://github.com/user-attachments/assets/2f3721a7-000d-477a-82ef-6322b76c42ac">
+</p>
   <br clear="left">
 
 
