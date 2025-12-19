@@ -11,6 +11,11 @@ Remaking github readme page uhmmm work in progress. Heres hotdog Rodimus, ok?
 
   <hr>
 
+<p align="center">
+<img src="https://readme-typing-svg.herokuapp.com?font=times+new+roman&size=15&duration=3000&pause=1000&color=FD8543&center=true&width=650&lines=Autobots,Transform,+and+roll+out!;Till+all+are+one!" title="Till all are one.!" alt="Typing SVG" />
+</div>
+</p>
+
   <img src="https://github.com/user-attachments/assets/7e9f9786-dfc8-4a83-94ae-2ca7a55dfb64" align="left" width="250">
 <p align="center">
       $\color{#FD8543}{\textsf{ᯓ}}$
@@ -18,10 +23,7 @@ Remaking github readme page uhmmm work in progress. Heres hotdog Rodimus, ok?
     <img src="https://github.com/user-attachments/assets/5536524e-bfd2-453a-a1c2-0c2225978680">
 ⚝ 〔 $\color{#FD8543}{\textsf{she}}$ . they 〕
     <img src="https://github.com/user-attachments/assets/f2f2163b-92bd-4ec1-bb04-bd36a7ba4c66">
-  
-</p>
-<img src="https://readme-typing-svg.herokuapp.com?font=times+new+roman&size=15&duration=3000&pause=1000&color=AFAFAF&left=true&width=650&lines=Decepticon's+attack!;Transform,+and+rise+up!;Till+all+are+one!" title="Till all are one.!" alt="Typing SVG" />
-</div>
+  </p>
 
 <p align="center">
  ദ്ദി◝ ⩊ ◜.ᐟ}}
@@ -30,6 +32,9 @@ Remaking github readme page uhmmm work in progress. Heres hotdog Rodimus, ok?
     <img src="https://github.com/user-attachments/assets/805469b1-4385-4142-9c69-5db8eaab0ec3">
 memory issues ᶻ 𝗓 𐰁 $\color{#FD8543}{\textsf{low energy}}$
 </p>
+
+<hr>
+PICTURES N STUFF GO HERE
   <br clear="left">
 
 
