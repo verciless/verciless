@@ -33,8 +33,7 @@ Remaking github readme page uhmmm work in progress. Heres hotdog Rodimus, ok?
 memory issues ᶻ 𝗓 𐰁 $\color{#FD8543}{\textsf{low energy}}$
 </p>
 
-<img src="https://github.com/user-attachments/assets/68800da0-778c-4f50-aea3-db9ff9ee9248" align="center" width="400">
-
+<hr>
 PICTURES N STUFF GO HERE
   <br clear="left">
 
