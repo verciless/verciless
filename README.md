@@ -1,12 +1,16 @@
 
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/533c7221-e34b-4952-9c9f-206f55c22055">
-Remaking github readme page uhmmm work in progress. Heres hotdog Rodimus, ok?
+Remaking github readme page, uhmmm work in progress, ok?
   </p>
 
+  <p align="center">
+  <img src="https://github.com/user-attachments/assets/4b4b1cab-5679-407a-bbf1-994bd4e05cc1" width="250">
+</p>
+<p align="center"> Rodimus & Drift spinning until their feet fall off </p>
+
 <p align="Center">
-<img src="https://komarev.com/ghpvc/?username=verciless&label=Hotdogs&color=FD8543"
+<img src="https://komarev.com/ghpvc/?username=verciless&label=number+of+spins&color=FD8543"
   </p>
 
   <hr>
@@ -43,8 +47,5 @@ memory issues ᶻ 𝗓 𐰁 $\color{#FD8543}{\textsf{low energy}}$ ۶ৎ
 
 <hr>
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/4b4b1cab-5679-407a-bbf1-994bd4e05cc1" width="250">
-</p>
 
     <img src="https://github.com/user-attachments/assets/2f3721a7-000d-477a-82ef-6322b76c42ac">
