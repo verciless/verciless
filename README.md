@@ -1,4 +1,12 @@
 <p align="center">
+  ꒰
+<a href="https://verciless.atabook.org/">atabook</a>
+  ♡
+<a href="https://idiaangel.carrd.co/">carrd</a>
+  ꒱
+</p>
+
+<p align="center">
   ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿ 
 </p>
 
