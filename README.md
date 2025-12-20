@@ -47,7 +47,7 @@ Remaking github readme page, uhmmm work in progress, ok?
          $\color{#FD8543}{\textsf{Rodimus}}$
     fan ⋮ ⌗ ┆
     <img src="https://github.com/user-attachments/assets/805469b1-4385-4142-9c69-5db8eaab0ec3">
-shy ᶻ 𝗓 𐰁 $\color{#FD8543}{\textsf{low energy}}$ ۶ৎ
+┆ shy ᶻ 𝗓 𐰁 $\color{#FD8543}{\textsf{low energy}}$ ۶ৎ
 </p>
 
 <p align="center">
