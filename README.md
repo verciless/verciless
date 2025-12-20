@@ -53,5 +53,5 @@ Remaking github readme page, uhmmm work in progress, ok?
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/d6850376-67fc-42c0-995f-153f297ce514" width="400">
+  <img src="https://github.com/user-attachments/assets/1a0494de-f21d-4bc3-accf-e5140ad9ffea" width="400">
 </p>
