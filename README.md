@@ -13,13 +13,6 @@ Remaking github readme page, uhmmm work in progress, ok?
 <img src="https://komarev.com/ghpvc/?username=verciless&label=number+of+spins&color=FD8543"
   </p>
 
-  <hr>
-
-  <p align="center">
-<img src="https://readme-typing-svg.herokuapp.com?font=times+new+roman&size=15&duration=3000&pause=1000&color=FD8543&center=true&width=200&height=30&lines=Autobots,+transform+and+roll+out!;Till+all+are+one!" title="Till all are one.!" alt="Typing SVG" />
-</div>
-</p>
-
 <p align="center">
   ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿ 
 </p>
@@ -54,3 +47,7 @@ Remaking github readme page, uhmmm work in progress, ok?
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 </p>
 
+  <p align="center">
+<img src="https://readme-typing-svg.herokuapp.com?font=times+new+roman&size=15&duration=3000&pause=1000&color=FD8543&center=true&width=200&height=30&lines=Autobots,+transform+and+roll+out!;Till+all+are+one!" title="Till all are one.!" alt="Typing SVG" />
+</div>
+</p>
