@@ -40,9 +40,13 @@ memory issues ᶻ 𝗓 𐰁 $\color{#FD8543}{\textsf{low energy}}$ ۶ৎ
 <hr>
 
 <p align="center">
+  ꒰ა
   <img src="https://github.com/user-attachments/assets/632fd2f4-e332-44b2-9b1f-0ba75902dbb5">
+  ʚɞ
     <img src="https://github.com/user-attachments/assets/2f3721a7-000d-477a-82ef-6322b76c42ac">
+  ʚɞ
      <img src="https://github.com/user-attachments/assets/f9c3b627-8cc7-4969-a8eb-e336bfc6501c">
+     ໒꒱
 
 </p>
   <br clear="left">
