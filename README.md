@@ -1,12 +1,6 @@
 <p align="center">
-<a href="https://verciless/atabook/org/"><img src="https://github.com/user-attachments/assets/83978590-7a6f-4202-9e9f-dd2197868969">
-<a href="https://idiaangel.carrd.co"><img src="https://github.com/user-attachments/assets/066ea67a-8c4c-4c93-b4aa-5287f3bed2ae">
-
-
-
-<p align="center">
-Remaking github readme page, uhmmm work in progress, ok?
-  </p>
+  ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿ 
+</p>
 
   <p align="center">
   <img src="https://github.com/user-attachments/assets/4b4b1cab-5679-407a-bbf1-994bd4e05cc1" width="250">
