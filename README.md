@@ -51,3 +51,7 @@ Remaking github readme page, uhmmm work in progress, ok?
 <img src="https://readme-typing-svg.herokuapp.com?font=times+new+roman&size=15&duration=3000&pause=1000&color=FF872C&center=true&width=200&height=30&lines=Autobots,+transform+and+roll+out!;Till+all+are+one!" title="Till all are one.!" alt="Typing SVG" />
 </div>
 </p>
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/d6850376-67fc-42c0-995f-153f297ce514" width="250">
+</p>
