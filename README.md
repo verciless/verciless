@@ -7,7 +7,7 @@ Remaking github readme page, uhmmm work in progress, ok?
   <p align="center">
   <img src="https://github.com/user-attachments/assets/4b4b1cab-5679-407a-bbf1-994bd4e05cc1" width="250">
 </p>
-<p align="center"> « Rodimus & Drift spinning until their feet fall off » </p>
+<p align="center"> ➤ Rodimus & Drift spinning until their feet fall off .ᐟ </p>
 
 <p align="Center">
 <img src="https://komarev.com/ghpvc/?username=verciless&label=number+of+spins&color=EF7717"
