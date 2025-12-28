@@ -3,8 +3,6 @@
 <a href="https://verciless.atabook.org/">atabook</a>
   ♡
 <a href="https://idiaangel.carrd.co/">carrd</a>
-  ♡
-<a href="https://colormytree.me/2025/01KBT4KEFSV3V1AHBNRWZXFFZH">tree</a>
   ꒱
 </p>
 
