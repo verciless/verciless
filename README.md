@@ -59,5 +59,6 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/4c5d4b0e-de48-4321-a988-3849ce94b032" width="400">
+  <img src="https://github.com/user-attachments/assets/1160d6e2-ee4a-4f89-a87a-3cf4c096fe5d" width="410">
 </p>
+
