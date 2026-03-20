@@ -7,6 +7,10 @@
 </p>
 
 <p align="center">
+ ꒰ <a href="https://verciless.carrd.co/">art dump</a> ꒱
+ </p>
+
+<p align="center">
   ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿ 
 </p>
 
