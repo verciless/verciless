@@ -1,3 +1,12 @@
+<p align="center"> ↓ ↓ AWARENESS / CALLOUT DOCUMENT BELOW: "TF.NAVI" ↓ ↓ </p>
+<p align="center">
+https://docs.google.com/document/d/1vl1DuVKT3bVnJt4sSIOOiMo87AI2HKeLAQH1O3w3vnU/edit?usp=sharing
+</p>
+
+<p align="center">
+  ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿ 
+</p>
+  
 <p align="center">
   ꒰
 <a href="https://verciless.atabook.org/">atabook</a>
