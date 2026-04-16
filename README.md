@@ -17,7 +17,7 @@
 <img src="https://github.com/user-attachments/assets/475b1659-f009-4d09-8312-03a322ac63e4"  width="1000" </p>
 
   <p align="center">
-<img src="https://readme-typing-svg.herokuapp.com?font=georgia&size=20&duration=3000&pause=1000&color=AB0000&center=true&width=300&height=30&lines=currently+remaking+this+readme" title="Till all are one.!" alt="Typing SVG" />
+<img src="https://readme-typing-svg.herokuapp.com?font=georgia&size=20&duration=3000&pause=1000&color=AB0000&center=true&width=350&height=30&lines=≪I'm+back+there+again.≫;≪Old+memories...≫;≪...And+no+one+to+save+me+this+time.≫" title="Till all are one.!" alt="Typing SVG" />
 </div>
 </p>
 
@@ -37,6 +37,3 @@ $\color{#AB0000}{\textsf{꒰}}$
 <a href="https://verciless.carrd.co/">art dump</a>
   $\color{#AB0000}{\textsf{꒱}}$
  </p>
-
- <p align="center">
-<img src="https://github.com/user-attachments/assets/4b5f79a5-707a-46ee-a9f9-b275cc4e043b" width="500" </p>
