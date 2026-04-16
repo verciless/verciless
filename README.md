@@ -16,7 +16,7 @@
 </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/0c5fad48-a7aa-4c7b-9458-1b09bf85cf63" </p>
+<img src="https://github.com/user-attachments/assets/d934f831-ea25-45b6-a7bb-42868c2378c1" </p>
 
 <p align="Center">
 <img src="https://komarev.com/ghpvc/?username=verciless&label=Kill+Count&color=AB0000"
