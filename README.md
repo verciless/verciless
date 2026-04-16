@@ -7,7 +7,7 @@
 <img src="https://github.com/user-attachments/assets/779cc6dc-db73-4daf-9d30-aef4ec770d3e" width="1000" </p>
 
 <p align="Center">
-<img src="https://komarev.com/ghpvc/?username=verciless&label=Kill+Count&color=AB0000"
+<img src="https://komarev.com/ghpvc/?username=verciless&label=Decepticon+Kill+Count&color=AB0000"
   </p>
 
 <p align="center">
