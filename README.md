@@ -4,6 +4,7 @@
 <p align="center">
   <p align="center">
 <img src="https://github.com/user-attachments/assets/464dc790-ea9f-46ac-805c-0eaad4c5c6eb">
+    $\color{#AB0000}{\textsf{꒰}}$
 <a href="https://verciless.atabook.org/">atabook</a>
 $\color{#AB0000}{\textsf{♡}}$
 <a href="https://idiaangel.carrd.co/">carrd</a>
