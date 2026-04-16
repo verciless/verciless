@@ -37,3 +37,6 @@ $\color{#AB0000}{\textsf{꒰}}$
 <a href="https://verciless.carrd.co/">art dump</a>
   $\color{#AB0000}{\textsf{꒱}}$
  </p>
+
+ <p align="center">
+<img src="https://github.com/user-attachments/assets/4b5f79a5-707a-46ee-a9f9-b275cc4e043b" width="500" </p>
