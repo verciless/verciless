@@ -8,9 +8,9 @@
 
 <p align="Center">
   <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery253/abd39af7.gif?v=20a350bf" width="40">
+<img src="https://gifcity.carrd.co/assets/images/gallery253/abd39af7.gif?v=20a350bf" width="30">
 <img src="https://komarev.com/ghpvc/?username=verciless&label=Decepticon+Kill+Count&color=AB0000">
-<img src="https://gifcity.carrd.co/assets/images/gallery253/abd39af7.gif?v=20a350bf" width="40">
+<img src="https://gifcity.carrd.co/assets/images/gallery253/abd39af7.gif?v=20a350bf" width="30">
   </p>
 
 <p align="center">
