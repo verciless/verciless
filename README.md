@@ -7,7 +7,10 @@
 <img src="https://github.com/user-attachments/assets/1a030020-c3c8-45cb-8374-43671c9e8610" width="1000" </p>
 
 <p align="Center">
-<img src="https://komarev.com/ghpvc/?username=verciless&label=Decepticon+Kill+Count&color=AB0000"
+  <p align="center">
+<img src="https://gifcity.carrd.co/assets/images/gallery253/abd39af7.gif?v=20a350bf" width="40">
+<img src="https://komarev.com/ghpvc/?username=verciless&label=Decepticon+Kill+Count&color=AB0000">
+<img src="https://gifcity.carrd.co/assets/images/gallery253/abd39af7.gif?v=20a350bf" width="40">
   </p>
 
 <p align="center">
