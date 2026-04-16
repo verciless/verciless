@@ -1,4 +1,3 @@
-[![atabook](https://dummyimage.com/180x45/000000/9A0000.png&text=ATABOOK&font=monospace)](https://verciless.atabook.org/)
 
 
 <p align="center">
