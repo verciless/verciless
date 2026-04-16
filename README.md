@@ -1,16 +1,19 @@
 
 <p align="center">
-  ꒰
-<a href="https://verciless.atabook.org/"><img src="https://github.com/user-attachments/assets/0ce4eac8-e5dd-4a7f-b730-9c956d426232"> </a>
-  ♡
-<a href="https://idiaangel.carrd.co/"><img src ="https://github.com/user-attachments/assets/fb0abd1a-a269-451e-93f9-7f90dd4129b8">
- </a>
-  ꒱
+  <p align="center">
+<img src="https://github.com/user-attachments/assets/464dc790-ea9f-46ac-805c-0eaad4c5c6eb">
+$\color{#AB0000}{\textsf{꒰}}$
+<a href="https://verciless.atabook.org/"><img src="https://github.com/user-attachments/assets/0ce4eac8-e5dd-4a7f-b730-9c956d426232"></a>
+$\color{#AB0000}{\textsf{♡}}$
+<a href="https://idiaangel.carrd.co/"><img src ="https://github.com/user-attachments/assets/fb0abd1a-a269-451e-93f9-7f90dd4129b8"></a>
+$\color{#AB0000}{\textsf{꒱}}$
+<img src="https://github.com/user-attachments/assets/464dc790-ea9f-46ac-805c-0eaad4c5c6eb">
 </p>
 
 <p align="center">
- ꒰ <a href="https://verciless.carrd.co/"><img src="https://github.com/user-attachments/assets/a6dc88b2-b895-434c-a7d9-c3995c6eb75f">
- </a> ꒱
+$\color{#AB0000}{\textsf{꒰}}$
+  <a href="https://verciless.carrd.co/"><img src="https://github.com/user-attachments/assets/a6dc88b2-b895-434c-a7d9-c3995c6eb75f"></a>
+  $\color{#AB0000}{\textsf{꒱}}$
  </p>
 
 <p align="center">
