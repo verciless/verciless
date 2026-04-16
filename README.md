@@ -4,7 +4,7 @@
 <img src="https://github.com/user-attachments/assets/475b1659-f009-4d09-8312-03a322ac63e4"  width="1000" </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/59213eab-a81e-4d7f-b5d8-a5ecc08dc30e" width="1000" </p>
+<img src="https://github.com/user-attachments/assets/1a030020-c3c8-45cb-8374-43671c9e8610" width="1000" </p>
 
 <p align="Center">
 <img src="https://komarev.com/ghpvc/?username=verciless&label=Decepticon+Kill+Count&color=AB0000"
