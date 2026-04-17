@@ -22,8 +22,6 @@ width="1000" </p>
 </div>
 </p>
 
-<p align="center">
-<img src="https://github.com/user-attachments/assets/8f133db1-4294-4216-abac-4a8ad4ec26eb" </p>
 
 <p align="center">
   <p align="center">
