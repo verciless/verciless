@@ -23,7 +23,7 @@ width="1000" </p>
 </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/a7e6a0ae-3086-47e7-a572-76cbbb5e3921" </p>
+<img src="https://github.com/user-attachments/assets/8f133db1-4294-4216-abac-4a8ad4ec26eb" </p>
 
 <p align="center">
   <p align="center">
