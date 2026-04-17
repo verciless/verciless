@@ -9,9 +9,10 @@
 <p align="Center">
   <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery253/abd39af7.gif?v=20a350bf" width="30">
-<img src="https://komarev.com/ghpvc/?username=verciless&label=Decepticon+Kill+Count&color=AB0000">
+<img src="https://komarev.com/ghpvc/?username=verciless&label=Đēȼēꝑⱦīȼꝋꞥ+Ҟīłł+Ȼꝋᵾꞥⱦ&color=AB0000">
 <img src="https://gifcity.carrd.co/assets/images/gallery253/abd39af7.gif?v=20a350bf" width="30">
   </p>
+
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/42d0a21b-f504-4f5e-8fa7-3d828d295d84"
