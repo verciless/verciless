@@ -37,7 +37,7 @@ $\color{#AB0000}{\textsf{꒱}}$
 
 <p align="center">
 $\color{#AB0000}{\textsf{꒰}}$
-<a href="https://verciless.carrd.co/">𝔞𝔯𝔱-𝔡𝔲𝔪𝔭</a>
+<a href="https://guns.lol/verciless">𝔤𝔲𝔫𝔰.𝔩𝔬𝔩</a>
   $\color{#AB0000}{\textsf{꒱}}$
  </p>
 
