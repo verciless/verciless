@@ -30,7 +30,7 @@ width="1000" </p>
     $\color{#AB0000}{\textsf{꒰}}$
 <a href="https://verciless.atabook.org/">𝔞𝔱𝔞𝔟𝔬𝔬𝔨</a>
 $\color{#AB0000}{\textsf{♡}}$
-<a href="https://idiaangel.carrd.co/">𝔠𝔞𝔯𝔯𝔡</a>
+<a href="https://verciless.straw.page/">𝔰𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢</a>
 $\color{#AB0000}{\textsf{꒱}}$
 <img src="https://github.com/user-attachments/assets/464dc790-ea9f-46ac-805c-0eaad4c5c6eb">
 </p>
