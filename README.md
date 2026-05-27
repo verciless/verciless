@@ -1,5 +1,6 @@
 <p align="center">Currently watching: Spider-Man: Across The Spiderverse </p>
-<p align="center">Join my room with the link below to watch with me. After the movie is done, or if the movie lags at any time, I will shut down the room. </p>
+<p align="center">Join my room with the link below to watch with me. </p>
+<p align="center">After the movie is done, or if the movie lags at any time, I will shut down the room. </p>
 
 <p align="center">https://kosmi.to/@marshxalz </p>
 
