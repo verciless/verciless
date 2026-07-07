@@ -7,4 +7,4 @@ Anyways, if you see this account being used on Ponytown while being linked to my
 My ***ONLY*** Github Accounts are: ***@Verciless*** , ***@Deadratch*** , ***@Driftrod*** , and ***@Seraphka*** *(my REAL spam follow account)*
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/16806fd4-2f32-4d61-9623-66e0a10d7a55" width="1000" </p>
+  <img src="https://github.com/user-attachments/assets/16806fd4-2f32-4d61-9623-66e0a10d7a55" width="500" </p>
