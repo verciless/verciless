@@ -1,5 +1,6 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/d2058457-d082-4f5b-9fc4-edcfd514b00c"  width="400"
+<img src="https://github.com/user-attachments/assets/87e6123b-fd35-4334-bc81-ca75246f3ab3" width="400">
+  <img src="https://github.com/user-attachments/assets/5220f549-7127-4c0f-94e6-7e58b70e6cfc" width="400">
   </p>
 
 <p align="center">
@@ -13,7 +14,4 @@
 <a href="https://guns.lol/verciless">𝔤𝔲𝔫𝔰.𝔩𝔬𝔩</a>
  </p>
 
-  <p align="center">
-<img src="https://github.com/user-attachments/assets/3fc802a3-9a8f-4d3f-89a2-489c072bd3d5"  width="400"
-</p>
 
