@@ -16,6 +16,10 @@
 <img src="https://github.com/user-attachments/assets/42d0a21b-f504-4f5e-8fa7-3d828d295d84"
 width="1000" </p>
 
+<p align="center">
+$\color{#AB0000}{\textsf{ㅤㅤㅤ}}$
+ </p>
+
   <p align="center">
 <img src="https://readme-typing-svg.herokuapp.com?font=georgia&size=20&duration=3000&pause=1000&color=AB0000&center=true&width=350&height=30&lines=≪I'm+back+there+again.≫;≪Old+memories...≫;≪...And+no+one+to+save+me+this+time.≫" title="Till all are one.!" alt="Typing SVG" />
 </div>
