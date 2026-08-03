@@ -38,7 +38,7 @@ $\color{#AB0000}{\textsf{꒱}}$
 </p>
 
 <p align="center">
-$\color{#AB0000}{\textsf{ㅤㅤㅤ}}$
+$\color{#AB0000}{\textsf{ᴀʟʟ ɢɪꜰꜱ ɪɴ ᴍʏ ʀᴇᴀᴅᴍᴇ ᴡᴇʀᴇ ᴏʙᴛᴀɪɴᴇᴅ ꜰʀᴏᴍ}}$ <a href="https://gifcity.carrd.co/#">ɢɪꜰᴄɪᴛʏ</a> 
  </p>
 
 <p align="center">
