@@ -34,9 +34,7 @@ $\color{#AB0000}{\textsf{꒱}}$
 </p>
 
 <p align="center">
-$\color{#AB0000}{\textsf{꒰}}$
-<a href="https://guns.lol/verciless">𝔤𝔲𝔫𝔰.𝔩𝔬𝔩</a>
-  $\color{#AB0000}{\textsf{꒱}}$
+$\color{#AB0000}{\textsf{ㅤㅤㅤ}}$
  </p>
 
 <p align="center">
