@@ -1,7 +1,12 @@
+<p align="center">
+<img src="https://hits.sh/github.com/verciless/hits.svg?label=test&extraCount=11617&color=e18eaf&labelColor=e1cbc2">
+</p>
+
 
 <p align="center">
-<img src="https://hits.sh/github.com/verciless/hits.svg?label=test&extraCount=11617&color=e18eaf&labelColor=e1bebd">
+<img src="https://github.com/user-attachments/assets/17ce8d30-58f5-4ce5-ace2-4ed341bc8098">
 </p>
+
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/b8dc3f84-0252-4666-a07d-a456dbe37e78" width="400" align="left">
@@ -29,5 +34,10 @@ $\color{#e1bebd}{\textsf{ 𝒕𝒉𝒆𝒚'𝒓𝒆⠀𝒘𝒐𝒓𝒕𝒉𝒍�
 <img src="https://github.com/user-attachments/assets/7251861e-26a0-410d-8f3d-c26f352de87d" width="160">
 </p>
 
-***I'm still working on this stupid readme it's still very unfinished***
+<p align="center">
+I'm still working on this stupid readme it's still very unfinished
+</p>
 
+<p align="center">
+<img src="https://github.com/user-attachments/assets/0d00c1d7-76e2-4516-9e96-2d1fb394adba">
+</p>
