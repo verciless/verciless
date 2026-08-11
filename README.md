@@ -1,5 +1,6 @@
 
-<img src="https://komarev.com/ghpvc/?username=verciless&label=—𝔇𝔢𝔠𝔢𝔭𝔱𝔦𝔠𝔬𝔫𝔰—&color=AB0000" >
+<img src="https://komarev.com/ghpvc/?username=verciless&label=—𝔇𝔢𝔠𝔢𝔭𝔱𝔦𝔠𝔬𝔫𝔰—&color=e18eaf&labelColor=e1bebd">
+<img src="https://hits.sh/github.com/verciless/hits.svg?label=test&extraCount=11617&color=e18eaf&labelColor=e1bebd">
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/b8dc3f84-0252-4666-a07d-a456dbe37e78" width="400" align="left">
