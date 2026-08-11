@@ -22,11 +22,10 @@
 
   
 <p align="center">
-$\color{#e18eaf}{\textsf{" 𝒕𝒉𝒆𝒔𝒆⠀𝒘𝒂𝒏𝒕𝒔⠀𝒂𝒏𝒅⠀𝒅𝒓𝒆𝒂𝒎𝒔⠀...}}$
+$\color{#54608f}{\textsf{"}}$ $\color{#6b6796}{\textsf{ 𝒕𝒉𝒆𝒔𝒆}}$ $\color{#b57ca2}{\textsf{⠀𝒘𝒂𝒏𝒕𝒔}}$ $\color{#e08daf}{\textsf{⠀𝒂𝒏𝒅}}$ $\color{#e0bdbd}{\textsf{⠀𝒅𝒓𝒆𝒂𝒎𝒔}}$ $\color{#e0cfc3}{\textsf{...}}$
 </p>
 <p align="center">
-$\color{#e1bebd}{\textsf{ 𝒕𝒉𝒆𝒚'𝒓𝒆⠀𝒘𝒐𝒓𝒕𝒉𝒍𝒆𝒔𝒔⠀𝒕𝒐⠀𝒎𝒆⠀.⠀"}}$
-</p>
+$\color{#6b6796}{\textsf{ 𝒕𝒉𝒆𝒚'𝒓𝒆}}$ $\color{#b57ca2}{\textsf{ 𝒘𝒐𝒓𝒕𝒉𝒍𝒆𝒔𝒔}}$ $\color{#e08daf}{\textsf{ 𝒕𝒐}}$ $\color{#e0bdbd}{\textsf{ 𝒎𝒆}}$ $\color{#e0cfc3}{\textsf{.}}$ $\color{#e0cfc3}{\textsf{"}}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/43800f9a-ef7e-4a34-8db6-535715641424" width="160">
