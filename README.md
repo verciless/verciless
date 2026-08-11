@@ -1,6 +1,6 @@
-<p align="center">
-<img src="https://hits.sh/github.com/verciless/hits.svg?label=a+carousel+of+dreams&extraCount=11617&color=e18eaf&labelColor=e1cbc2">
-</p>
+  <p align="center">
+<img src="https://komarev.com/ghpvc/?username=verciless&label=____________+⸝⸝+𝒂+𝒄𝒂𝒓𝒐𝒖𝒔𝒆𝒍+𝒐𝒇+𝒅𝒓𝒆𝒂𝒎𝒔+♡+୧+____________&color=e08daf" >
+  </p>
 
 
 <p align="center">
