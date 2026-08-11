@@ -34,9 +34,5 @@ $\color{#6b6796}{\textsf{ 𝒕𝒉𝒆𝒚'𝒓𝒆}}$ $\color{#b57ca2}{\textsf{
 </p>
 
 <p align="center">
-I'm still working on this stupid readme it's still very unfinished
-</p>
-
-<p align="center">
 <img src="https://github.com/user-attachments/assets/0d00c1d7-76e2-4516-9e96-2d1fb394adba">
 </p>
