@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://hits.sh/github.com/verciless/hits.svg?label=test&extraCount=11617&color=e18eaf&labelColor=e1cbc2">
+<img src="https://hits.sh/github.com/verciless/hits.svg?label=a+carousel+of+dreams&extraCount=11617&color=e18eaf&labelColor=e1cbc2">
 </p>
 
 
