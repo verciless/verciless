@@ -1,7 +1,3 @@
-  <p align="center">
-<img src="https://komarev.com/ghpvc/?username=verciless&label=____________+⸝⸝+𝒂+𝒄𝒂𝒓𝒐𝒖𝒔𝒆𝒍+𝒐𝒇+𝒅𝒓𝒆𝒂𝒎𝒔+♡+୧+____________&color=e08daf" >
-  </p>
-
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/17ce8d30-58f5-4ce5-ace2-4ed341bc8098">
@@ -32,6 +28,10 @@ $\color{#6b6796}{\textsf{ 𝒕𝒉𝒆𝒚'𝒓𝒆}}$ $\color{#b57ca2}{\textsf{
 <img src="https://github.com/user-attachments/assets/34f088f6-40a0-449a-b4bc-855e5896595f" width="70">
 <img src="https://github.com/user-attachments/assets/7251861e-26a0-410d-8f3d-c26f352de87d" width="160">
 </p>
+
+  <p align="center">
+<img src="https://komarev.com/ghpvc/?username=verciless&label=____________+⸝⸝+𝒂+𝒄𝒂𝒓𝒐𝒖𝒔𝒆𝒍+𝒐𝒇+𝒅𝒓𝒆𝒂𝒎𝒔+♡+୧+____________&color=e08daf" >
+  </p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/0d00c1d7-76e2-4516-9e96-2d1fb394adba">
