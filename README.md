@@ -13,9 +13,8 @@
 </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/4a373bcf-98f2-463b-bbef-e824118b020e" width="400">
+<img src="https://github.com/user-attachments/assets/c5bbbafd-7c13-42f9-9809-b920f3fa035c" width="400">
 </p>
-
   
 <p align="center">
 $\color{#54608f}{\textsf{"}}$ $\color{#6b6796}{\textsf{ 𝒕𝒉𝒆𝒔𝒆}}$ $\color{#b57ca2}{\textsf{⠀𝒘𝒂𝒏𝒕𝒔}}$ $\color{#e08daf}{\textsf{⠀𝒂𝒏𝒅}}$ $\color{#e0bdbd}{\textsf{⠀𝒅𝒓𝒆𝒂𝒎𝒔}}$ $\color{#e0cfc3}{\textsf{...}}$
