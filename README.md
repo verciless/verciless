@@ -23,9 +23,9 @@ $\color{#54608f}{\textsf{"}}$ $\color{#6b6796}{\textsf{ 𝒕𝒉𝒆𝒔𝒆}}$ 
 $\color{#6b6796}{\textsf{ 𝒕𝒉𝒆𝒚'𝒓𝒆}}$ $\color{#b57ca2}{\textsf{ 𝒘𝒐𝒓𝒕𝒉𝒍𝒆𝒔𝒔}}$ $\color{#e08daf}{\textsf{ 𝒕𝒐}}$ $\color{#e0bdbd}{\textsf{ 𝒎𝒆}}$ $\color{#e0cfc3}{\textsf{.}}$ $\color{#e0cfc3}{\textsf{"}}$
 
 <p align="center">
-<a href="https://verciless.atabook.org/"><img src="https://github.com/user-attachments/assets/43800f9a-ef7e-4a34-8db6-535715641424" width="160"></a>
-<img src="https://github.com/user-attachments/assets/34f088f6-40a0-449a-b4bc-855e5896595f" width="70">
-<a href="https://deadlockz.straw.page/"><img src="https://github.com/user-attachments/assets/7251861e-26a0-410d-8f3d-c26f352de87d" width="160"></a>
+<a href="https://verciless.atabook.org/"><img src="https://github.com/user-attachments/assets/257dbdc9-8557-466b-b9a5-3bba34f77bd8" width="160"></a>
+<img src="https://github.com/user-attachments/assets/72faf99a-f8d8-4620-b04f-c4a1835f7073" width="70">
+<a href="https://deadlockz.straw.page/"><img src="https://github.com/user-attachments/assets/37ef7ba4-7800-4cb3-962b-c368bdaa36bf" width="160"></a>
 </p>
 
   <p align="center">
