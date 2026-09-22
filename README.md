@@ -1,42 +1,42 @@
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/4c8914c6-8d3d-42a1-903d-365df58aefa2" width="900">
-</p>
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/3ee63e08-79a3-4e9b-9fa8-298148a43f21" width="700"> </p>
 
+###### Want a character graphic for your Readme? Click <a href="https://graphicz.straw.page/">here</a>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/30cd17a1-624c-4581-a7c8-0ca98e80d83f" width="450" align="left">
+<img src="https://github.com/user-attachments/assets/17ce8d30-58f5-4ce5-ace2-4ed341bc8098">
 </p>
 
+
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/08155590-fa1c-40c8-abff-057fd9cc01fc" width="210">
+<img src="https://github.com/user-attachments/assets/4659ecad-e1fe-4bcb-bdaf-e3b0bf42dbed" width="400" align="left">
+</p>
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/341e334f-b788-4e81-8b5e-c5528675b47a" width="300">
+</p>
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/c5bbbafd-7c13-42f9-9809-b920f3fa035c" width="400">
+</p>
+  
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/ae393f91-e4d8-4e75-8519-e66dd2fb4e44">
+$\color{#54608f}{\textsf{⠀݂     ۫ ⠀ "}}$ $\color{#6b6796}{\textsf{ 𝒕𝒉𝒆𝒔𝒆}}$ $\color{#b57ca2}{\textsf{⠀𝒘𝒂𝒏𝒕𝒔}}$ $\color{#e08daf}{\textsf{⠀𝒂𝒏𝒅}}$ $\color{#e0bdbd}{\textsf{⠀𝒅𝒓𝒆𝒂𝒎𝒔}}$ $\color{#e0cfc3}{\textsf{... ⠀   ۪ ׁ   `♡݁`    ׄ }}$
+</p>
+<p align="center">
+$\color{#6b6796}{\textsf{  ◜     ˚𝜗℘ ꒱ ׁ  .⠀ 𝒕𝒉𝒆𝒚'𝒓𝒆}}$ $\color{#b57ca2}{\textsf{ 𝒘𝒐𝒓𝒕𝒉𝒍𝒆𝒔𝒔}}$ $\color{#e08daf}{\textsf{ 𝒕𝒐}}$ $\color{#e0bdbd}{\textsf{ 𝒎𝒆}}$ $\color{#e0cfc3}{\textsf{.}}$ $\color{#e0cfc3}{\textsf{"⠀  ꒰𓏼´  `𓏼  。}}$
+  <img src="https://github.com/user-attachments/assets/e13d7272-92e3-4334-b07e-73e3dbd3476a">
+
+
+<p align="center">
+<a href="https://verciless.atabook.org/"><img src="https://github.com/user-attachments/assets/257dbdc9-8557-466b-b9a5-3bba34f77bd8" width="160"></a>
+<img src="https://github.com/user-attachments/assets/72faf99a-f8d8-4620-b04f-c4a1835f7073" width="70">
+<a href="https://deadlockz.straw.page/"><img src="https://github.com/user-attachments/assets/37ef7ba4-7800-4cb3-962b-c368bdaa36bf" width="160"></a>
+</p>
+
+  <p align="center">
+<img src="https://komarev.com/ghpvc/?username=verciless&label=____________+⸝⸝+𝒂+𝒄𝒂𝒓𝒐𝒖𝒔𝒆𝒍+𝒐𝒇+𝒅𝒓𝒆𝒂𝒎𝒔+♡+୧+____________&color=e08daf" >
   </p>
 
 <p align="center">
-  <a href="https://verciless.atabook.org/"><img src="https://github.com/user-attachments/assets/e241af8a-8844-4379-8005-12b36f9a7c93" width="130"></a>
-  <a href="https://deadlockz.straw.page/"><img src="https://github.com/user-attachments/assets/bd2e5df4-094d-45c0-a68f-e3586aec8bca" width="130"></a>
+<img src="https://github.com/user-attachments/assets/0d00c1d7-76e2-4516-9e96-2d1fb394adba">
 </p>
-
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/3ee63e08-79a3-4e9b-9fa8-298148a43f21" width="360"> </p>
-
-<p align="center">
-    <img src="https://github.com/user-attachments/assets/140ae40a-4f8d-49c1-a21d-8303f699263e" width="20">
-  $\color{#952626}{\textsf{" 𝐀𝐧𝐝}}$ $\color{#ad393c}{\textsf{𝐢𝐧}}$ $\color{#b6545c}{\textsf{𝐭𝐡𝐚𝐭}}$ $\color{#b76974}{\textsf{𝐦𝐨𝐦𝐞𝐧𝐭,}}$ $\color{#b67a87} {\textsf{𝐜𝐨𝐯𝐞𝐫𝐞𝐝}}$ $\color{#b8848c}{\textsf{𝐢𝐧}}$ $\color{#bb9192}{\textsf{𝐛𝐥𝐨𝐨𝐝,}}$ $\color{#bd9e98}{\textsf{𝐈}}$ $\color{#c4afa7}{\textsf{𝐦𝐞𝐭}}$ $\color{#cabdb5}{\textsf{𝐆𝐨𝐝}}$ $\color{#cec5bd}{\textsf{. "}}$
-    <img src="https://github.com/user-attachments/assets/75205cde-fe46-44df-8182-05dbe0ca2458" width="17">
-</p>
-
-
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/48a654ba-fbbd-4a61-8b93-39f57f75ab5c" width="120">
-  <img src="https://github.com/user-attachments/assets/de71ee5e-1131-4082-b890-eadeedbe6d40" width="110">
-  <img src="https://github.com/user-attachments/assets/a64319a8-3fc6-4641-940b-ff2e4a63cf26" width="120">
-</p>
-
-
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/3ee63e08-79a3-4e9b-9fa8-298148a43f21" width="700"> </p>
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/1dc92907-ca3f-4e1c-bb9d-393885e8c129" width="900">
-
