@@ -4,7 +4,8 @@
 <p align="center">
 <img src="https://github.com/user-attachments/assets/17ce8d30-58f5-4ce5-ace2-4ed341bc8098">
 </p>
-
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/3ee63e08-79a3-4e9b-9fa8-298148a43f21" width="700"> </p>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/4659ecad-e1fe-4bcb-bdaf-e3b0bf42dbed" width="400" align="left">
@@ -33,10 +34,12 @@ $\color{#6b6796}{\textsf{  ◜     ˚𝜗℘ ꒱ ׁ  .⠀ 𝒕𝒉𝒆𝒚'𝒓�
 <a href="https://deadlockz.straw.page/"><img src="https://github.com/user-attachments/assets/37ef7ba4-7800-4cb3-962b-c368bdaa36bf" width="160"></a>
 </p>
 
-  <p align="center">
 <img src="https://komarev.com/ghpvc/?username=verciless&label=____________+⸝⸝+𝒂+𝒄𝒂𝒓𝒐𝒖𝒔𝒆𝒍+𝒐𝒇+𝒅𝒓𝒆𝒂𝒎𝒔+♡+୧+____________&color=e08daf" >
   </p>
 
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/3ee63e08-79a3-4e9b-9fa8-298148a43f21" width="700"> </p>
+  <p align="center">
 <p align="center">
 <img src="https://github.com/user-attachments/assets/0d00c1d7-76e2-4516-9e96-2d1fb394adba">
 </p>
