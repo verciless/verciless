@@ -19,10 +19,10 @@
   
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ae393f91-e4d8-4e75-8519-e66dd2fb4e44">
-$\color{#54608f}{\textsf{⠀݂     ۫ ⠀ "}}$ $\color{#6b6796}{\textsf{ 𝒕𝒉𝒆𝒔𝒆}}$ $\color{#b57ca2}{\textsf{⠀𝒘𝒂𝒏𝒕𝒔}}$ $\color{#e08daf}{\textsf{⠀𝒂𝒏𝒅}}$ $\color{#e0bdbd}{\textsf{⠀𝒅𝒓𝒆𝒂𝒎𝒔}}$ $\color{#e0cfc3}{\textsf{... ⠀   ۪ ׁ   `♡݁`    ׄ }}$
+$\color{#54608f}{\textsf{⠀݂     ۫ ⠀ "}}$ $\color{#6b6796}{\textsf{ 𝒕𝒉𝒆𝒔𝒆}}$ $\color{#b57ca2}{\textsf{⠀𝒘𝒂𝒏𝒕𝒔}}$ $\color{#e08daf}{\textsf{⠀𝒂𝒏𝒅}}$ $\color{#e0bdbd}{\textsf{⠀𝒅𝒓𝒆𝒂𝒎𝒔}}$ $\color{#f5e7e9}{\textsf{... ⠀   ۪ ׁ   `♡݁`    ׄ }}$
 </p>
 <p align="center">
-$\color{#6b6796}{\textsf{  ◜     ˚𝜗℘ ꒱ ׁ  .⠀ 𝒕𝒉𝒆𝒚'𝒓𝒆}}$ $\color{#b57ca2}{\textsf{ 𝒘𝒐𝒓𝒕𝒉𝒍𝒆𝒔𝒔}}$ $\color{#e08daf}{\textsf{ 𝒕𝒐}}$ $\color{#e0bdbd}{\textsf{ 𝒎𝒆}}$ $\color{#e0cfc3}{\textsf{.}}$ $\color{#e0cfc3}{\textsf{"⠀  ꒰𓏼´  `𓏼  。}}$
+$\color{#6b6796}{\textsf{  ◜     ˚𝜗℘ ꒱ ׁ  .⠀ 𝒕𝒉𝒆𝒚'𝒓𝒆}}$ $\color{#b57ca2}{\textsf{ 𝒘𝒐𝒓𝒕𝒉𝒍𝒆𝒔𝒔}}$ $\color{#e08daf}{\textsf{ 𝒕𝒐}}$ $\color{#e0bdbd}{\textsf{ 𝒎𝒆}}$ $\color{#e0cfc3}{\textsf{.}}$ $\color{#f5e7e9}{\textsf{"⠀  ꒰𓏼´  `𓏼  。}}$
   <img src="https://github.com/user-attachments/assets/e13d7272-92e3-4334-b07e-73e3dbd3476a">
 
 
