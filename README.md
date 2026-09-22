@@ -28,7 +28,7 @@ $\color{#6b6796}{\textsf{  ◜     ˚𝜗℘ ꒱ ׁ  .⠀ 𝒕𝒉𝒆𝒚'𝒓�
 
 <p align="center">
 <a href="https://verciless.atabook.org/"><img src="https://github.com/user-attachments/assets/257dbdc9-8557-466b-b9a5-3bba34f77bd8" width="160"></a>
-<img src="https://github.com/user-attachments/assets/72faf99a-f8d8-4620-b04f-c4a1835f7073" width="70">
+<img src="https://github.com/user-attachments/assets/e7a841ab-eed6-404d-ace1-207a071f0dd7" width="80">
 <a href="https://deadlockz.straw.page/"><img src="https://github.com/user-attachments/assets/37ef7ba4-7800-4cb3-962b-c368bdaa36bf" width="160"></a>
 </p>
 
